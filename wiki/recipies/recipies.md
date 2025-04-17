@@ -7,11 +7,11 @@ Hello and welcome to the recipe book! I wrote this more just to collect all the 
 In an effort to make it easy to actually find what I'm/You're looking for I've instituted a number reference system similar to a warehouse:
 
 Recipes are referenced by category:
- - Breakfast - BR
+ - [Breakfast - BR](/recipies/breakfast/breakfast-master.md)
  - Lunch/Tea - TL (I'm Welsh so I use Tea to refer to evening meal (Dinner))
  - Dessert - DE
  - Sides & Snacks - SN
- - [Baking - BA](/wiki/recipies/baking/baking-master.md)
+ - [Baking - BA](/recipies/baking/baking-master.md)
  
  And then by protein:
   - Chicken - C
