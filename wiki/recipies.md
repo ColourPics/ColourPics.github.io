@@ -11,7 +11,7 @@ Recipes are referenced by category:
  - Lunch/Tea - TL (I'm Welsh so I use Tea to refer to evening meal (Dinner))
  - Dessert - DE
  - Sides & Snacks - SN
- - [Baking - BA](/wiki/cooking/baking/baking-master.md)
+ - [Baking - BA](/wiki/recipies/baking/baking-master.md)
  
  And then by protein:
   - Chicken - C
