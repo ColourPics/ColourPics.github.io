@@ -4,7 +4,7 @@
 
  - [Luxardo Maraschino Cherries](https://www.lakeland.co.uk/61272/luxardo-maraschino-cherries-400g) - £7.99
 
- - [Peychaud's Bitters](https://www.masterofmalt.com/bitters/sazerac/peychauds-bitters/) - £
+ - [Peychaud's Bitters](https://www.masterofmalt.com/bitters/sazerac/peychauds-bitters/) - £8.99
 
  - [DeGroff's Pimento Bitters](https://www.thewhiskyexchange.com/p/28815/dale-degroffs-pimento-aromatic-bitters) - £14.95
 
