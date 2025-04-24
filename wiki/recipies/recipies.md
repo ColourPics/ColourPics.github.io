@@ -14,7 +14,7 @@ Recipes are referenced by category:
  - [Baking - BA](baking/baking-master.md)
  
  And then by protein:
-  - Chicken - C
+  - [Chicken - C](Tea/chicken/chicken-master.md)
   - Beef - B
   - Pork - P
   - Fish - F
