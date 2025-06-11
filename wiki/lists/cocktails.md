@@ -1,3 +1,5 @@
+Refer to [Rum List](/rum.md) for more extensive list for tiki drinks.
+
 ## x<£20
 
  - [Bokers Bitters](https://www.thewhiskyexchange.com/p/71745/dr-adam-elmegirabs-bokers-bitters) - £8.75
