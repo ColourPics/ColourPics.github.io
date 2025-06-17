@@ -1,8 +1,8 @@
 Lists are sorted into categories and price:
 
- - [Clothes](/lists/clothes.md)
- - [Makeup etc.](/lists/makeup.md)
- - [Cocktails & Tiki](/lists/cocktails.md)
- - [Hiking Kit](/lists/hiking.md)
- - [Cooking Kit](/lists/cooking.md)
- - [Misc](/lists/misc.md)
+ - [Clothes](/clothes.md)
+ - [Makeup etc.](/makeup.md)
+ - [Cocktails & Tiki](/cocktails.md)
+ - [Hiking Kit](/hiking.md)
+ - [Cooking Kit](/cooking.md)
+ - [Misc](/misc.md)
