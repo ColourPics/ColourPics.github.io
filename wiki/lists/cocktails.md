@@ -82,6 +82,8 @@ Refer to [Rum List](/rum.md) for more extensive list for tiki drinks.
 
 ## £60>x<£100
 
+ - [Fortaleza Blanco](https://www.masterofmalt.com/tequila/destileria-la-fortaleza/fortaleza-blanco-tequila/) - £79
+
 ## x>£100
 
  - [Eekum Bookum Jungle Bird](https://www.eekumbookum.com/product/jungle-bird-blue) - £130
