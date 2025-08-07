@@ -19,6 +19,8 @@
 
  - [Smartwool Extra Coushion (Large)](https://www.cotswoldoutdoor.com/p/smartwool-mens-classic-edition-extra-cushion-crew-socks-B5114961.html) - £25
 
+ - [DMR Deathgrip 2 (Gum)](https://dmrbikes.com/products/dmr-grips-deathgrip2-flangeless?variant=54281742713167) - £24
+
 ## £30>x<£60
 
 ## £60>x<£100
