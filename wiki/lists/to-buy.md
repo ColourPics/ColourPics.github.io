@@ -1,6 +1,6 @@
 Lists are sorted into categories and price:
 
- - [Clothes](lists/clothes.md)
+ - [Clothes](clothes.md)
  - [Makeup etc.](/makeup.md)
  - [Cocktails & Tiki](/cocktails.md)
  - [Outdoor](/hiking.md)
