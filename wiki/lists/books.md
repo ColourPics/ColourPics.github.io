@@ -1,0 +1,81 @@
+Because book prices are a bit wishy washy and I usually buy second hand I've not included prices on these ones but obviously I would encourage buying used books if you can find them, 
+I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find everything I want on there for a reasonable price.
+
+List format is [Title] - [Author]
+
+ - Leviathan Wakes - James Corey
+ - The Sovereign - C.L. Clark
+ - What Stalks the Deep - T. Kingfisher
+ - Of Monsters and Mainframes - Barbara Truelove
+ - If We Were Villains - M.L. Rio
+ - The Secret History - Donna Tartt
+ - The Thin Man - Dashiell Hammett
+ - A Month in the Country - J.L. Carr
+ - The Tokyo-Montanna Express - Richard Brautigan
+ - The Fisherman - John Langan
+ - Piranesi - Susanna Clarke
+ - The Fifth Season - N.K. Jemisin
+ - The Tainted Cup - Robert JAckson Bennett
+ - Moon of the Crusted Snow - Waubgeshig Rice
+ - The Book - Hungry Minds
+ - Silver in the Wood - Emily Tesh
+ - Bourne - Jeff Vandermeer
+ - Memorial - Alice Oswold
+ - Jack Glass - Adam Roberts
+ - Who Fears Death - Nnedi Okorafor
+ - XX - Rian Hughes
+ - The Raw Shark Texts - Steven Hall
+ - The Castle of Crossed Destinies - Italo Calvino
+ - If on a Winters Night a Traveller - Italo Calvino
+ - Pale Fire - Vladimir Nabokov
+ - Starship Mine - Peter Cawdron
+ - The 2020 Comission Report on the North Korean Nuclear Attacks Against the United States - Jeffrey Lewis
+ - Annihilation - Jeff Vandermeer
+ - Kraken - China Mieville
+ - A Woman of the Sword - Anna Smith Spark
+ - This Weightless World - Adam Soto
+ - Across the Green Grass Fields - Seannan McGuire
+ - State of the Art - Ian M. Banks
+ - Transcendent - K.M. Szpara
+ - The Deep - Rivers Solomon
+ - Mexican Gothic - Silvia Moreno-Garcia
+ - Every Heart a Doorway - Seanan McGuire
+ - The Paradox Hotel - Rob Hart
+ - The Bone Harp - Victoria Goddard
+ - Starless - Jacqueline Carey
+ - What Should Be Wild - Julia Fine
+ - Sea of Tranquility - Emily St. John Mandel
+ - Siren Queen - Nghi Vo
+ - Corker - Hannah Crosbie
+ - A World Running Down - Al Hess
+ - Our Wives Under The Sea - Julia Armfield
+ - To Sleep in a Sea of Stars - Christopher Paolini
+ - Fish Swimming in Dappled Sunlight - Riku Onda
+ - Wild Seed - Octavia E. Butler
+ - A Psalm for the Wild Built - Becky Chambers
+ - The Phsycology of Time Travel - Kate Mascarenhas
+ - In the Full Light of the Sun - Clare Clark
+ - The Madwoman Upstairs - Catherine Lowell
+ - Do You Dream of Terra-Two? - Temi Oh
+ - Station Eleven - Emily St. John Mandel
+ - The City We Became - N.K. Jemisin
+ - An Unkindness of Ghosts - Rivers Solomon
+ - The Book of Elsewhere - Cina Mieville & Keanu Reeves
+ - Hermetica - Alan Lea
+ - House of Leaves - Mark Z. Danielewski
+ - The Sting of Victory - S.D. Simper
+ - Neuromancer - William Gibson
+ - Lord'd Dome - E.D.E Bell
+ - Godly Heathens - H. E. Edgman
+ - The Man-Butcher Prize - Charles X. Cross
+ - Ammonite - Nicola Griffith
+ - Rolling in the Deep - Mira Grant
+ - Legends & Lattes - Travis Baldree
+ - How to Invent Everything - Ryan North
+ - The Fifty-Seven Lives of Alex Wayfare - M. G. Buehreien
+ - Before the Coffee Gets Cold - Toshikazu Kawaguchi
+ - Upright Women Wanted - Sarah Gailey
+ - Reincarnation Blues - Michael Poore
+ - All Systems Red - Martha Wells
+ - Dark Matter - Blake Crouch
+ - After Atlas - Emma Newman
