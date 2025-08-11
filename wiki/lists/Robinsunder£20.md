@@ -2,6 +2,7 @@
  - [Face gems (any)](https://www.glistencosmetics.com/collections/embellish-by-rowi)
  - [Eyeliner (any)](https://www.glistencosmetics.com/collections/chroma-pencil-1)
  - [Individual water activated eyeliners (any, get creative!)](https://www.glistencosmetics.com/collections/wet-liners?page=1)
+ - [Individual glitter flakes (any)](https://www.glistencosmetics.com/collections/chroma-flakes)
 
 ### Makeup brushes:
  - [EB1 Blending Brush - Glisten Cosmetics](https://www.glistencosmetics.com/products/eb1-blending-brush-glisten-cosmetics)
@@ -13,6 +14,12 @@
 
 # Food,Drinks and related: 
  - [NCK cookies (not white choc)](https://jnckbakery.co.uk/product/choose-your-own-cookie-box-6-pack/)
+ - [Furikake Rice Seasoning](https://www.souschef.co.uk/products/noritamago-furikake-rice-seasoning)
+ - [Cavi-Art Vegan Caviar (100g)](https://www.souschef.co.uk/products/cavi-art-black-seaweed-vegan-caviar?variant=40151766237242)
+ - [Shiro Dashi - Bonito Soup Stock](https://www.souschef.co.uk/products/shiro-dashi-stock)
+ - [Mixed sparkling mead 6 pack](https://hivemindmead.com/products/sparkling-mead-can-gift-box-330ml-can-of-sparkling-mead?variant=42839470276780)
+ - 
+   
 
 # Books: 
 New or used, no preffarance really but links provided offer both options, feel free to order from elsewhere anyway
@@ -34,14 +41,24 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [My Friends by Fredrik Backman](https://www.awesomebooks.com/book/9781398516397/my-friends)
  - [To Build a Fire by Jack London](https://www.awesomebooks.com/book/9780375752513/the-call-of-the-wild-white-fang-to-build-a-fire/used)
  - [All Systems Red by Martha Wells](https://www.awesomebooks.com/book/9780765397539/all-systems-red)
-   
+ - [Atlas of Human Anatomy for the Artist](https://www.waterstones.com/book/atlas-of-human-anatomy-for-the-artist/stephen-rogers-peck/9780195030952)
+
 
 # Running/Hiking 
+ - [Running socks, any crew or quater hight but fun desing (size S)](https://uk.stance.com/collections/womens-performance-socks?filter.p.m.filter.sock_height=Crew&filter.p.m.filter.sock_height=Quarter&filter.p.m.filter.activity=Run&filter.v.price.gte=&filter.v.price.lte=&sort_by=manual&page=2)
+ - [Sea to Summit Frontier UL Long Handle Spork](https://ultralightoutdoorgear.co.uk/frontier-ul-long-handle-spork/)
+ - [TOAKS Titanium Long Handle Spork](https://ultralightoutdoorgear.co.uk/titanium-long-handle-spork-with-polished-bowl/)
+ - [OMM flexi cup](https://ultralightoutdoorgear.co.uk/ultra-flexi-cup-200ml/)
+ - [Water Treatment Tablets](https://ultralightoutdoorgear.co.uk/micropur-forte-mf-water-treatment-tablets-50-tablets/)
 
-# Clothes 
+# Clothes and jewlery
 [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
 
 
 # Household
+ - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat)
+ - [Stainless Steel Dough Cutter & Scraper](https://www.souschef.co.uk/products/stainless-steel-dough-cutter-scraper)
+ - [De Buyer Flexible Rounded Scraper](https://www.souschef.co.uk/products/de-buyer-flexible-rounded-scraper)
+ - 
 
 # Other 
