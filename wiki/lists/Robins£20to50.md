@@ -20,7 +20,7 @@
  - [nitecore headtorch](https://ultralightoutdoorgear.co.uk/nu25-ul-ultra-light-rechargeable-head-torch/)
 
 # Clothes:
- - [Crossback 2.0 Sports Bra(size 34c/d](https://www.brooksrunning.com/en_gb/womens/sports-bras/crossback-2.0-sports-bra/350084.html?dwvar_350084_color=598)
+ - [Crossback 2.0 Sports Bra(size 34c/d)](https://www.brooksrunning.com/en_gb/womens/sports-bras/crossback-2.0-sports-bra/350084.html?dwvar_350084_color=598)
 
 # Household:
  - [Blue wave ramen bowl](https://www.souschef.co.uk/products/blue-wave-ramen-bowl)
