@@ -11,6 +11,8 @@
  - [Puresport ultra eletrolytes](https://puresport.co/products/ultra-electrolytes-discovery-pack-2x15-pack?variant=45319763099786)
  - [Rum barrel aged mead](https://hivemindmead.com/products/rum-barrel-aged-traditional-mead)
  - [Jubel Beer (mixed pack of 12 or 24 cans)](https://jubelbeer.com/products/can?selling_plan=1569489063)
+ - [Barebells protein bars (any flavour)](https://barebells.co.uk/product-category/protein-bars/)
+ - [Misfits protein bars (any flavour)](https://misfits.health/collections/all)
 
 # Running/Hiking:
  - [Sea to Summit Aeros Down Pillow](https://ultralightoutdoorgear.co.uk/aeros-down-pillow/)
@@ -28,3 +30,7 @@
  - [Chefs press (13oz size)](https://www.souschef.co.uk/products/the-chefs-press-8oz?variant=39844164173882)
 
 # Other: 
+ - [Leuchtturm1917 Notebook Master Classic (A4+, harcover, dot rulled, orange colour)](https://www.leuchtturm1917.co.uk/notebook-master-classic-a4-hardcover-235-numbered-pages-rising-sun-dotted.html)
+ - [Leuchtturm1917 Sketchbook (Medium landscape, port red colur)](https://www.leuchtturm1917.co.uk/sketchbook-landscape-a5-hardcover-112-pages-150-gsqm-plain-port-red.html)
+
+
