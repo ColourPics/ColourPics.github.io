@@ -22,6 +22,9 @@
  - [Mixed sparkling mead 6 pack](https://hivemindmead.com/products/sparkling-mead-can-gift-box-330ml-can-of-sparkling-mead?variant=42839470276780)
  - [Myprotein Pop Roll Protein Snack (12 pack any flavour)](https://www.myprotein.com/p/sports-nutrition/pop-roll-protein-snack/12590683/?variation=14975123)
  - [Myprotein Crispy Protein Wafer (any flavour)](https://www.myprotein.com/p/sports-nutrition/crispy-protein-wafer/10961185/)
+ - [Freeze Dried Raspberries Whole (100g bags)](https://www.nutsinbulk.co.uk/product/freeze-dried-raspberries-whole)
+ - [Freeze Dried Strawberry Slices (250g bag)](https://www.nutsinbulk.co.uk/product/freeze-dried-strawberry-slices)
+ - [Freeze Dried Pineapple (100g bag)](https://www.nutsinbulk.co.uk/product/freeze-dried-pineapple)
    
 
 # Books: 
