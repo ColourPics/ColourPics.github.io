@@ -1,8 +1,10 @@
-# Makeup: 
+# Makeup and cosmetics: 
  - [Face gems (any)](https://www.glistencosmetics.com/collections/embellish-by-rowi)
  - [Eyeliner (any)](https://www.glistencosmetics.com/collections/chroma-pencil-1)
  - [Individual water activated eyeliners (any, get creative!)](https://www.glistencosmetics.com/collections/wet-liners?page=1)
  - [Individual glitter flakes (any)](https://www.glistencosmetics.com/collections/chroma-flakes)
+ - [inkey list 360° Skin Clearing Serum (30ml)](https://uk.theinkeylist.com/products/360-skin-clearing-serum)
+ - [inkey list hyaluronic acid cleanser](https://uk.theinkeylist.com/products/hyaluronic-acid-cleanser)
 
 ### Makeup brushes:
  - [EB1 Blending Brush - Glisten Cosmetics](https://www.glistencosmetics.com/products/eb1-blending-brush-glisten-cosmetics)
@@ -18,7 +20,8 @@
  - [Cavi-Art Vegan Caviar (100g)](https://www.souschef.co.uk/products/cavi-art-black-seaweed-vegan-caviar?variant=40151766237242)
  - [Shiro Dashi - Bonito Soup Stock](https://www.souschef.co.uk/products/shiro-dashi-stock)
  - [Mixed sparkling mead 6 pack](https://hivemindmead.com/products/sparkling-mead-can-gift-box-330ml-can-of-sparkling-mead?variant=42839470276780)
- - 
+ - [Myprotein Pop Roll Protein Snack (12 pack any flavour)](https://www.myprotein.com/p/sports-nutrition/pop-roll-protein-snack/12590683/?variation=14975123)
+ - [Myprotein Crispy Protein Wafer (any flavour)](https://www.myprotein.com/p/sports-nutrition/crispy-protein-wafer/10961185/)
    
 
 # Books: 
@@ -50,15 +53,20 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [TOAKS Titanium Long Handle Spork](https://ultralightoutdoorgear.co.uk/titanium-long-handle-spork-with-polished-bowl/)
  - [OMM flexi cup](https://ultralightoutdoorgear.co.uk/ultra-flexi-cup-200ml/)
  - [Water Treatment Tablets](https://ultralightoutdoorgear.co.uk/micropur-forte-mf-water-treatment-tablets-50-tablets/)
+ - [Ultra Flexi Flask 250ml](https://ultralightoutdoorgear.co.uk/ultra-flexi-flask-250ml-with-bite-valve/)
+ - [Step One Body Shorts underwear(any fun colour, size M](https://uk.stepone.life/products/womens-body-shorts-polka-dots?variant=41621974450313)
 
 # Clothes and jewlery
 [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
-
 
 # Household
  - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat)
  - [Stainless Steel Dough Cutter & Scraper](https://www.souschef.co.uk/products/stainless-steel-dough-cutter-scraper)
  - [De Buyer Flexible Rounded Scraper](https://www.souschef.co.uk/products/de-buyer-flexible-rounded-scraper)
- - 
 
 # Other 
+ - [Michael Harding Refined Poppy Oil 100ml](https://www.cassart.co.uk/michael-harding-refined-poppy-oil-100ml--c/)
+ - [Zest It Safe Oil Paint Dilutant And Brush Cleaner (500ml size)](https://www.cassart.co.uk/zest-it-safe-oil-paint-dilutant-and-brush-cleaner/)
+ - [Michael Harding Beeswax Paste (100ml)](https://www.cassart.co.uk/michael-harding-beeswax-paste/)
+ - [Swann-Morton Surgical Scalpel Blade No.11 (multipe packs would be ideal)](https://www.cassart.co.uk/swann-morton-surgical-scalpel-blade-no.11-pack-of-5--c/)
+ - [Sennelier Extra Fine Oil Stick 12ml](https://www.cassart.co.uk/sennelier-extra-fine-oil-stick-12ml-apple-still-life-set-of-6/)
