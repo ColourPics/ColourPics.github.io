@@ -12,7 +12,9 @@
 
  - [Nordisk Titanium Pegs](https://ultralightoutdoorgear.co.uk/titanium-tooth-peg-6-pack/) - £19.99
 
- - [Toaks Light 550ml Pot](https://ultralightoutdoorgear.co.uk/light-titanium-550ml-pot/)
+ - [BRS 3000-T Stove](https://ultralightoutdoorgear.co.uk/brs-3000-t-stove/) - £18.99
+
+ - [Gram Counter Grear Fuel Transfer Nozzle](https://ultralightoutdoorgear.co.uk/fuel-saver-gas-transfer-device/) - £19.99
 
 
 ## £20>x<£30
@@ -22,6 +24,8 @@
  - [DMR Deathgrip 2 (Gum)](https://dmrbikes.com/products/dmr-grips-deathgrip2-flangeless?variant=54281742713167) - £24
 
 ## £30>x<£60
+
+ -  - [Toaks Light 550ml Pot](https://ultralightoutdoorgear.co.uk/light-titanium-550ml-pot/) - £37.99
 
 ## £60>x<£100
 
