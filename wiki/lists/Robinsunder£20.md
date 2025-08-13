@@ -54,7 +54,6 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [OMM flexi cup](https://ultralightoutdoorgear.co.uk/ultra-flexi-cup-200ml/)
  - [Water Treatment Tablets](https://ultralightoutdoorgear.co.uk/micropur-forte-mf-water-treatment-tablets-50-tablets/)
  - [Ultra Flexi Flask 250ml](https://ultralightoutdoorgear.co.uk/ultra-flexi-flask-250ml-with-bite-valve/)
- - [Step One Body Shorts underwear(any fun colour, size M](https://uk.stepone.life/products/womens-body-shorts-polka-dots?variant=41621974450313)
 
 # Clothes and jewlery
 [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
