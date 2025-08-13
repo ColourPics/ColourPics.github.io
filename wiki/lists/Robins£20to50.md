@@ -13,6 +13,7 @@
  - [Jubel Beer (mixed pack of 12 or 24 cans)](https://jubelbeer.com/products/can?selling_plan=1569489063)
  - [Barebells protein bars (any flavour)](https://barebells.co.uk/product-category/protein-bars/)
  - [Misfits protein bars (any flavour)](https://misfits.health/collections/all)
+ - [Bird & Blend Cold Brew Tea Bottle (sunrise orange colour)](https://www.birdandblendtea.com/products/cold-brew-tea-bottle?variant=44948593213601)
 
 # Running/Hiking:
  - [Sea to Summit Aeros Down Pillow](https://ultralightoutdoorgear.co.uk/aeros-down-pillow/)
@@ -20,6 +21,9 @@
  - [La Sportiva winter running gaiters (s/m)](https://www.lasportiva.com/en/gaiters-trail-running-winter-running-gaiter-unisex-zerg001)
  - [Kahtoola INSTAgaiter Mid Ultra-Light Gaiter(size s/m) (a less heavy duty option)](https://www.chelstondirect.com/kahtoola-instagaiter-mid-ultra-light-gaiter-for-trail-running-hiking.html)
  - [nitecore headtorch](https://ultralightoutdoorgear.co.uk/nu25-ul-ultra-light-rechargeable-head-torch/)
+ - [RONHILL tech reflect top (size M)](https://www.runandbecome.com/item/Ronhill/Tech-Top/7K3V?v=7rst)
+ - [Proviz Running Chest Light](https://provizsports.com/products/led360-chest-light)
+ - [Proviz Fully Reflective Running Cap](https://provizsports.com/products/reflect360-running-cap)
 
 # Clothes:
  - [Crossback 2.0 Sports Bra(size 34c/d)](https://www.brooksrunning.com/en_gb/womens/sports-bras/crossback-2.0-sports-bra/350084.html?dwvar_350084_color=598)
