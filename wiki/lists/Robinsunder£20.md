@@ -62,6 +62,10 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [OMM flexi cup](https://ultralightoutdoorgear.co.uk/ultra-flexi-cup-200ml/)
  - [Water Treatment Tablets](https://ultralightoutdoorgear.co.uk/micropur-forte-mf-water-treatment-tablets-50-tablets/)
  - [Ultra Flexi Flask 250ml](https://ultralightoutdoorgear.co.uk/ultra-flexi-flask-250ml-with-bite-valve/)
+ - [Hydrapak SoftFlask 150ml](https://ultralightoutdoorgear.co.uk/softflask-150ml/)
+   Soft flasks listed above are intended to go with large energy gel refils listed below
+ - [PF 300 Flow energy Gel (1 pouch)](https://www.precisionhydration.com/products/pf-300-flow-gel/)
+ - [High5 Energy Gel Refill (any flavour)](https://highfive.co.uk/products/refill-energy-gel?variant=44180193280250)
 
 # Clothes and jewlery
  - [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
