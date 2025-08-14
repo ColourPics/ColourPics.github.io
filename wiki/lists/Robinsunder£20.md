@@ -15,7 +15,7 @@
  - [Liner Brush 7](https://www.glistencosmetics.com/products/liner-brush-7-glisten-cosmetics)
 
 # Food,Drinks and related: 
- - [NCK cookies (not white choc)](https://jnckbakery.co.uk/product/choose-your-own-cookie-box-6-pack/)
+ - [JNCK cookies (not white choc)](https://jnckbakery.co.uk/product/choose-your-own-cookie-box-6-pack/)
  - [Furikake Rice Seasoning](https://www.souschef.co.uk/products/noritamago-furikake-rice-seasoning)
  - [Cavi-Art Vegan Caviar (100g)](https://www.souschef.co.uk/products/cavi-art-black-seaweed-vegan-caviar?variant=40151766237242)
  - [Shiro Dashi - Bonito Soup Stock](https://www.souschef.co.uk/products/shiro-dashi-stock)
@@ -25,6 +25,11 @@
  - [Freeze Dried Raspberries Whole (100g bags)](https://www.nutsinbulk.co.uk/product/freeze-dried-raspberries-whole)
  - [Freeze Dried Strawberry Slices (250g bag)](https://www.nutsinbulk.co.uk/product/freeze-dried-strawberry-slices)
  - [Freeze Dried Pineapple (100g bag)](https://www.nutsinbulk.co.uk/product/freeze-dried-pineapple)
+ - [Cherry Coconut Bliss Tea (50g)](https://www.birdandblendtea.com/products/cherry-coconut-bliss-tea?variant=44940982059169)
+ - [Strawberry Lemonade Tea (lose leaf,50g)](https://www.birdandblendtea.com/products/strawberry-lemonade-tea)
+ - [Devon Cream tea (50g)](https://www.birdandblendtea.com/products/devon-cream-tea)
+ - [Campfires & Vampires Tea (50g)](https://www.birdandblendtea.com/products/campfires-vampires-tea?_pos=1&_psq=campfires&_ss=e&_v=1.0)
+ - [Tea taster bundle (nothing minty otherwise go crazy)](https://www.birdandblendtea.com/products/build-your-own-tea-tasting-pack/5-tea-set)
    
 
 # Books: 
@@ -59,7 +64,7 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [Ultra Flexi Flask 250ml](https://ultralightoutdoorgear.co.uk/ultra-flexi-flask-250ml-with-bite-valve/)
 
 # Clothes and jewlery
-[Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
+ - [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
 
 # Household
  - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat)
