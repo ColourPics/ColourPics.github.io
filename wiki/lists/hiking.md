@@ -33,9 +33,9 @@
 
 ## £30>x<£60
 
- -  - [Toaks Light 550ml Pot](https://ultralightoutdoorgear.co.uk/light-titanium-550ml-pot/) - £37.99
+ - [Toaks Light 550ml Pot](https://ultralightoutdoorgear.co.uk/light-titanium-550ml-pot/) - £37.99
   
-    - [Petzl Boreo Helmet (Orange, M/L)](https://bananafingers.co.uk/petzl-boreo) - £53.39
+ - [Petzl Boreo Helmet (Orange, M/L)](https://bananafingers.co.uk/petzl-boreo) - £53.39
 
 ## £60>x<£100
 
