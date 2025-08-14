@@ -55,7 +55,6 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [All Systems Red by Martha Wells](https://www.awesomebooks.com/book/9780765397539/all-systems-red)
  - [Atlas of Human Anatomy for the Artist](https://www.waterstones.com/book/atlas-of-human-anatomy-for-the-artist/stephen-rogers-peck/9780195030952)
 
-
 # Running/Hiking 
  - [Running socks, any crew or quater hight but fun desing (size S)](https://uk.stance.com/collections/womens-performance-socks?filter.p.m.filter.sock_height=Crew&filter.p.m.filter.sock_height=Quarter&filter.p.m.filter.activity=Run&filter.v.price.gte=&filter.v.price.lte=&sort_by=manual&page=2)
  - [Sea to Summit Frontier UL Long Handle Spork](https://ultralightoutdoorgear.co.uk/frontier-ul-long-handle-spork/)
@@ -66,6 +65,7 @@ New or used, no preffarance really but links provided offer both options, feel f
 
 # Clothes and jewlery
  - [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
+ - [Silver star studs](https://cheerings.co.uk/products/silver-star-stud-earrings)
 
 # Household
  - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat)
