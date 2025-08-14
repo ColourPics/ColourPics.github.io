@@ -24,6 +24,7 @@
  - [RONHILL tech reflect top (size M)](https://www.runandbecome.com/item/Ronhill/Tech-Top/7K3V?v=7rst)
  - [Proviz Running Chest Light](https://provizsports.com/products/led360-chest-light)
  - [Proviz Fully Reflective Running Cap](https://provizsports.com/products/reflect360-running-cap)
+ - [Running insoles (size 5-6)](https://enertor.com/products/px1-running-insoles)
 
 # Clothes:
  - [Crossback 2.0 Sports Bra(size 34c/d)](https://www.brooksrunning.com/en_gb/womens/sports-bras/crossback-2.0-sports-bra/350084.html?dwvar_350084_color=598)
@@ -36,5 +37,7 @@
 # Other: 
  - [Leuchtturm1917 Notebook Master Classic (A4+, harcover, dot rulled, orange colour)](https://www.leuchtturm1917.co.uk/notebook-master-classic-a4-hardcover-235-numbered-pages-rising-sun-dotted.html)
  - [Leuchtturm1917 Sketchbook (Medium landscape, port red colur)](https://www.leuchtturm1917.co.uk/sketchbook-landscape-a5-hardcover-112-pages-150-gsqm-plain-port-red.html)
+ - [TubeWringer 205 Medium Duty Tube Squeezer](https://www.jacksonsart.com/tubewringer-205-medium-duty-tube-squeezer)
+
 
 
