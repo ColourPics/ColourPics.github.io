@@ -82,3 +82,4 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [Michael Harding Beeswax Paste (100ml)](https://www.cassart.co.uk/michael-harding-beeswax-paste/)
  - [Swann-Morton Surgical Scalpel Blade No.11 (multipe packs would be ideal)](https://www.cassart.co.uk/swann-morton-surgical-scalpel-blade-no.11-pack-of-5--c/)
  - [Sennelier Extra Fine Oil Stick 12ml](https://www.cassart.co.uk/sennelier-extra-fine-oil-stick-12ml-apple-still-life-set-of-6/)
+ - [Rico Ricorumi Glow in the Dark DK (at least 2 balls prefarably)](https://www.woolwarehouse.co.uk/yarn/rico-ricorumi-glow-in-the-dark-dk-white-001-25g)
