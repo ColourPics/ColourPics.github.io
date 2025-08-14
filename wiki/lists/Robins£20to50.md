@@ -26,6 +26,7 @@
  - [Proviz Running Chest Light](https://provizsports.com/products/led360-chest-light)
  - [Proviz Fully Reflective Running Cap](https://provizsports.com/products/reflect360-running-cap)
  - [Running insoles (size 5-6)](https://enertor.com/products/px1-running-insoles)
+ - [Styrkr nutrition taster kit](https://styrkr.com/products/taster-kit-1)
 
 # Clothes:
  - [Crossback 2.0 Sports Bra(size 34c/d)](https://www.brooksrunning.com/en_gb/womens/sports-bras/crossback-2.0-sports-bra/350084.html?dwvar_350084_color=598)
