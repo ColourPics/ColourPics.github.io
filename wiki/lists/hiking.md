@@ -16,6 +16,14 @@
 
  - [Gram Counter Grear Fuel Transfer Nozzle](https://ultralightoutdoorgear.co.uk/fuel-saver-gas-transfer-device/) - £19.99
 
+ - [Gossamer Gear Umbrella Clamp](https://ultralightoutdoorgear.co.uk/handsfree-umbrella-clamp/) - £9.99
+
+ - [DMM Dynatec Sling (120cm, *6)](https://bananafingers.co.uk/dmm-8mm-dynatec-sling) - £12.30
+
+ - [DMM Phantom Carabiner *12](https://bananafingers.co.uk/dmm-phantom-carabiner) - £8.78
+
+ - [DMM NutBuster](https://bananafingers.co.uk/dmm-nutbuster) - £12.30
+
 
 ## £20>x<£30
 
@@ -26,6 +34,8 @@
 ## £30>x<£60
 
  -  - [Toaks Light 550ml Pot](https://ultralightoutdoorgear.co.uk/light-titanium-550ml-pot/) - £37.99
+  
+    - [Petzl Boreo Helmet (Orange, M/L)](https://bananafingers.co.uk/petzl-boreo) - £53.39
 
 ## £60>x<£100
 
@@ -33,8 +43,16 @@
 
  - [OMM Halo Trousers](https://ultralightoutdoorgear.co.uk/halo-pants/) - £74.99
 
+ - [Montbell Umbrella 55](https://ultralightoutdoorgear.co.uk/travel-umbrella-55/) - £74.99
+
+ - [DMM Wallnut Set](https://bananafingers.co.uk/dmm-wallnut-set-1-11) - £98.50
+
 ## x>£100
 
  - [Durston X-Mid 2 Solid](https://durstongear.com/products/x-mid-2-solid) - £242
 
  - [Helinox Chair Zero](https://ultralightoutdoorgear.co.uk/chair-zero/) - £129.99
+
+ - [Petzl Volta Guide (30m)](https://bananafingers.co.uk/petzl-volta-guide-9mm) - £102.67
+
+ - [DMM Dragon Cam Set](https://bananafingers.co.uk/dmm-dragon-cam-set-0-1-2-3-4-5) - £359.95
