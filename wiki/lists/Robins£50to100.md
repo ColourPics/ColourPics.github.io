@@ -29,3 +29,4 @@
 # Other 
  - [Ospray Archeon™ Chest Rig](https://www.osprey.com/gb/osprey-archeon-chest-rig-s24?size=One+Size&colour=Black)
  - [Glass Palette](https://www.jacksonsart.com/new-wave-posh-table-top-glass-palette-16x20in-grey)
+ - [Daylight Easel Lamp Go](https://www.cassart.co.uk/Daylight-Easel-Lamp-Go/)
