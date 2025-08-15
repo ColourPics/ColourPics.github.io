@@ -3,6 +3,13 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
+ - The Future of Another Timeline - Annalee Newitz
+ - Project Hail Mary - Andy Weir
+ - Rosewater - Tade Thompson
+ - Newjack - Ted Conover
+ - American Prometheus - Kai Bird, Martin J. Sherwin
+ - The Years of Lyndon Johnson - Robert Caro
+ - The Power Broker - Robert Caro
  - Leviathan Wakes - James Corey
  - The Sovereign - C.L. Clark
  - What Stalks the Deep - T. Kingfisher
@@ -64,7 +71,6 @@ List format is [Title] - [Author]
  - Hermetica - Alan Lea
  - House of Leaves - Mark Z. Danielewski
  - The Sting of Victory - S.D. Simper
- - Neuromancer - William Gibson
  - Lord'd Dome - E.D.E Bell
  - Godly Heathens - H. E. Edgman
  - The Man-Butcher Prize - Charles X. Cross
