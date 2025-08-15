@@ -40,6 +40,7 @@
  - [Blue wave ramen bowl](https://www.souschef.co.uk/products/blue-wave-ramen-bowl)
  - [Baking tray](https://www.souschef.co.uk/products/usa-pan-large-cookie-sheet)
  - [Chefs press (13oz size)](https://www.souschef.co.uk/products/the-chefs-press-8oz?variant=39844164173882)
+ - [Cataleya Pet Bed](https://www.wayfair.co.uk/pets/pdp/archie-oscar-cataleya-rectangle-cat-bed-u004072035.html)
 
 # Other: 
  - [Leuchtturm1917 Notebook Master Classic (A4+, harcover, dot rulled, orange colour)](https://www.leuchtturm1917.co.uk/notebook-master-classic-a4-hardcover-235-numbered-pages-rising-sun-dotted.html)
@@ -47,6 +48,8 @@
  - [Saniderm Flex Tattoo Bandage Roll](https://saniderm.co.uk/products/flex-tattoo-bandage-roll-personal-10-in-x-2-yd)
  - [TubeWringer 205 Medium Duty Tube Squeezer](https://www.jacksonsart.com/tubewringer-205-medium-duty-tube-squeezer)
  - [Road to Infamy Games - Canvas Board Game](https://www.amazon.co.uk/Road-Infamy-Games-Players-Playing/dp/B08VH7ZB9V)
+ - [Windsor and Newton oil paint (titanium white, 200ml)
+
 
 
 
