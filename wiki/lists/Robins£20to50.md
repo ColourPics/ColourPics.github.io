@@ -34,6 +34,7 @@
  - [Underdays tank (size M)](https://theunderdays.com/collections/clothing/products/the-tank)]
  - [Haglofs Brand LS Tee Women (any colour, size M)](https://www.haglofs.com/en/women/tops-women/brand-ls-tee-women-6081382C4?variantId=7318841953649)
  - [Haglofs Outsiders Tee Women (any colour but brown and pink, size M)](https://www.haglofs.com/en/women/tops-women/tops-shirt-tshirts-women/outsiders-tee-women-6076642C5)
+ - [Ask & Embla Odyssey Earrings (gold)](https://askandembla.net/products/odyssey-earrings)
 
 # Household:
  - [Blue wave ramen bowl](https://www.souschef.co.uk/products/blue-wave-ramen-bowl)
