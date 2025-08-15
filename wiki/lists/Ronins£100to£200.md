@@ -17,3 +17,4 @@
 
 # Other 
  - [Haglofs L.I.M Mountain Trail 25 (Blue)](https://www.haglofs.com/en/women/backpacks-bags-women/backpacks-bags-hiking-backpacks-women/lim-mountain-trail-25-6075555RS)
+ - [Daylight Artist Studio Lamp V2](https://www.cassart.co.uk/Daylight-Artist-Studio-Lamp-2/)
