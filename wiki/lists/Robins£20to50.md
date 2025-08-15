@@ -48,7 +48,10 @@
  - [Saniderm Flex Tattoo Bandage Roll](https://saniderm.co.uk/products/flex-tattoo-bandage-roll-personal-10-in-x-2-yd)
  - [TubeWringer 205 Medium Duty Tube Squeezer](https://www.jacksonsart.com/tubewringer-205-medium-duty-tube-squeezer)
  - [Road to Infamy Games - Canvas Board Game](https://www.amazon.co.uk/Road-Infamy-Games-Players-Playing/dp/B08VH7ZB9V)
- - [Windsor and Newton oil paint (titanium white, 200ml)
+ - [Windsor and Newton oil paint (titanium white, 200ml)](https://www.cassart.co.uk/winsor-newton-artists-oil-colour/)
+ - [RGM Wooden Palette Knife Pack of 6](https://www.cassart.co.uk/rgm-wooden-palette-knife-pack-of-6--c/)
+ - [Winsor & Newton Workstation A3 Ebro Table Easel](https://www.cassart.co.uk/workstation-a3-ebro-table-easel-a3--c/)
+   
 
 
 
