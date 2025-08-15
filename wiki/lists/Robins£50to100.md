@@ -6,7 +6,7 @@
 # Running/Hiking:
  - [Squeeze Water Filtration System](https://ultralightoutdoorgear.co.uk/squeeze-water-filtration-system/)
  - [Lululemon The Mat 5mm (pink haze colour)](https://www.lululemon.co.uk/en-gb/p/the-mat-5mm-made-with-fsc%E2%84%A2-certified-rubber/prod10990033.html?dwvar_prod10990033_color=71792)
- - 
+ - [OMM Womens Halo Pants (UK14/L, any colour)](https://ultralightoutdoorgear.co.uk/womens-halo-pants/)
 
 # Clothes and Jewlery:
  - [Sweaty betty high impact sports bra(black, 34D)](https://www.sweatybetty.com/shop/underwear/underwear-sports-bras/power-high-impact-sports-bra-SB10171_UltraBlackCamoPrint.html?pid=SB10171_White&dwvar_SB10171_White_color=black&vgid=SB10171_White&cgid=underwear-sports-bras&tile=5&newpid=SB10171_Black&oldpid=SB10171_UltraBlackCamoPrint)
