@@ -17,6 +17,11 @@
  - [Haglofs Willow Mid Hood Women (any colour but gray, size M)](https://www.haglofs.com/en/women/tops-women/tops-fleece-midlayers-women/willow-mid-hood-women-60541548H)
  - [Ask & Embla Siege Ear Cuffs Set (Gold)](https://askandembla.net/products/siege-ear-cuffs-set)
  - [Ask & Embla Dark Ark Ear Cuff (Gold, Left ear)](https://askandembla.net/products/dark-ark-ear-cuff)
+ - [Shrimp hoops](https://www.wolfandmoon.com/collections/earrings/products/shrimp-hoops)
+ - [Sardine Hoops](https://www.wolfandmoon.com/collections/earrings/products/sardine-hoops?variant=45235609043169)
+ - [Broccoli Hoops](https://www.wolfandmoon.com/collections/earrings/products/broccoli-hoops)
+ - [Mini Flowers Set III](https://www.wolfandmoon.com/collections/earrings/products/mini-flowers-set-iii)
+    - any of the earings from Wolf & Moon listed above can be ordered as a hoop set or charms only. Only 1 set of hoops is needed and all charms fit onto the hoops. The Golf filled hoops are prefered
    
 # Household
  - [Ninja ZEROSTICK 30cm Frying Pan](https://ninjakitchen.co.uk/product/ninja-zerostick-30cm-frying-pan-c30030uk-zidC30030UK)
