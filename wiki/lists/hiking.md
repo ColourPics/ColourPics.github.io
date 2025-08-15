@@ -37,15 +37,25 @@
   
  - [Petzl Boreo Helmet (Orange, M/L)](https://bananafingers.co.uk/petzl-boreo) - £53.39
 
-## £60>x<£100
+ - [Sawyer Mini](https://ultralightoutdoorgear.co.uk/mini-filter/) - £39.99
 
- - [Leki Trail Lite](https://www.leki.co.uk/item/903/Leki/Leki-Trail-Lite-Tamarillowhite.html) - £75
+ - [Nemo Fillo Elite](https://ultralightoutdoorgear.co.uk/fillo-elite-pillow/) - £52.99
+
+ - [Nitecore NU25](https://ultralightoutdoorgear.co.uk/nu25-mct-ul-ultra-light-rechargeable-head-torch/) - £44.99
+
+ - [Montane Dart Lite (Small)](https://ultralightoutdoorgear.co.uk/dart-lite-long-sleeve-t-shirt/) - £42.99
+
+## £60>x<£100
 
  - [OMM Halo Trousers](https://ultralightoutdoorgear.co.uk/halo-pants/) - £74.99
 
  - [Montbell Umbrella 55](https://ultralightoutdoorgear.co.uk/travel-umbrella-55/) - £74.99
 
  - [DMM Wallnut Set](https://bananafingers.co.uk/dmm-wallnut-set-1-11) - £98.50
+
+ - [Montane Malli (M)](https://ultralightoutdoorgear.co.uk/malli-leggings/) - £74.99
+
+ - [Montbell Tachyon (M)](https://ultralightoutdoorgear.co.uk/tachyon-pants/) - £89.99
 
 ## x>£100
 
