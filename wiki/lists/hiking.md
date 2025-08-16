@@ -57,6 +57,8 @@
 
  - [Montbell Tachyon (M)](https://ultralightoutdoorgear.co.uk/tachyon-pants/) - £89.99
 
+ - [Munin Mini Messenger](https://www.wizard.works/shop/bags/core/munin-mini-messenger/) - £88
+
 ## x>£100
 
  - [Durston X-Mid 2 Solid](https://durstongear.com/products/x-mid-2-solid) - £242
