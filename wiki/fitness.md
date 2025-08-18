@@ -28,4 +28,29 @@ I have the kind of figure that could easily be described as "goes to the gym, bu
 I'm sure some people will want to explore this side of things, I am neither a Vegan nor a Vegitarian and never have been. Therefore I'll leave it to other people to talk on this subject, I can't provide any good reccomendations for literature on this topic so youll have to do your own research.
 I can, however reccomend [One: Pot, Pan, Planet.](https://www.waterstones.com/book/one-pot-pan-planet/anna-jones/9780008172480) for vegitarian recipies, though it does have a heavy focus on seasonality in the UK.
 
+### Ozempic and other weight loss drugs
+I am not a doctor, I will not comment on this.
+
 ## Exercise
+
+I firmly belive that everyone should do some form of resistance training, you can keep this to solely bodyweight exercises if you like but you'll be limited on the results you'll get, including long term joint health results. **Squat now so you can stand up when your're 80.**
+
+### On "getting bulky"
+Many many many femminine presenting people I have talked to regarding strength training have expressed a worry about "getting bulky", citing examples of prefessional female body builders or rugby players. Unless it is your goal, **You will not get "bulky"**, getting anywhere close to "bulky" is a deliberate choice that takes years of strength training and a very particular diet, most people will not even see those results in their lifetime let alone by accident.
+
+The particular example I like to cite is Patty (@leanbeefpatty on insta), whose job it is to be fit yet she still absolutely cuts a feminine figure, she attined her pysique through years of hard work so thinking that you'll get that big by accident is ridiculous.
+
+### Cardio
+Cardio is very much a case of finding the one that works for you, my partner runs pretty religiously but I can't stand it. Cycling happens to work for me but unfortunately it probably won't for you, shop around and find the one that you find the least objectionable and stick with it.
+
+I usually try to stick to about 20-30 minutes of cardio per day, usually in the form of cycling to and from uni and work, on top of this I aim for the classic 10,000 steps daily. I find this target relatively easy with the lifestyle I have but naturally the walkability of your neighborhood will make this much harder if you're unlucky, there is absolutely no same in just going to the gym to walk on a treadmill, any exercise is better than no exercise.
+
+### Strength Training
+For tracking strength training I reccomend [Repcount](https://www.repcountapp.com/), you can do this with a pen and paper situation but personally I find something on my phone far more convenient. You should always be aiming to improve on the last time you performed a particular exercise, in addition you should be training close to failure as much as is possible, this is where you will see muscle hypertophy and growth. 
+
+When starting out you should find a weight that puts you at the limit of your ability within the rep range with good form, once you have reached a point where you can complete the programmed exercise to the upper bound of its rep range increase the weight enough to challenge you within the rep range again, rinse and repeat. This is known as "progressive overload", and it is more or less the only way to increase strength.
+
+I follow a Push-Pull-Legs-Rest-Upper-Lower-Rest routine for my week, as detailed below, the days are more guidelines so obviously adjust to suit you:
+
+#### Sunday - Push
+ - Cable
