@@ -53,4 +53,45 @@ When starting out you should find a weight that puts you at the limit of your ab
 I follow a Push-Pull-Legs-Rest-Upper-Lower-Rest routine for my week, as detailed below, the days are more guidelines so obviously adjust to suit you:
 
 #### Sunday - Push
- - [Cable lateral raises](https://www.inspireusafoundation.org/file/2023/11/single-arm-lateral-raise-muscles-768x450.png) - 3 sets of 8-12 reps per arm
+ - [Cable lateral raises](https://liftmanual.com/cable-one-arm-lateral-raise/) - 3 sets of 8-12 reps per arm
+ - [[Dumbell chest press (flat)](https://liftmanual.com/dumbbell-bench-press/) - top set of 5-9 reps, back off set of 8-12 reps
+ - [Dumbell chest press (incline)](https://liftmanual.com/dumbbell-incline-bench-press/) - top set of 5-9 reps, back off set of 8-12 reps
+ - [Dumbell soulder press](https://liftmanual.com/dumbbell-seated-shoulder-press/) - 3 sets of 8-12 reps
+ - [Cable crossover](https://liftmanual.com/cable-crossover/) - 3 sets of 8-12 reps
+ - [Assisted dips](https://liftmanual.com/weighted-tricep-dips/) - top set of 5-9 reps, back off set of 8-12 reps (this shows weighted dips, I use an [assist machine](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fweighttraining.guide%2Fwp-content%2Fuploads%2F2017%2F08%2Fassisted-triceps-dip.png&f=1&nofb=1&ipt=7952d25dfae143f57a0b70173ea628c5bcf072fc13e2dcfd563fedc52089660a) for the opposite effect)
+ - [Cable pushdowns](https://liftmanual.com/cable-pushdown/) - 3 sets of 8-12 reps
+
+#### Monday - Pull
+ - [Reverse fly](https://liftmanual.com/lever-seated-reverse-fly/) - 3 sets of 8-12 reps
+ - [Neutral grip pulldown](https://liftmanual.com/cable-wide-neutral-grip-pulldown/) - top set of 5-9 reps, back off set of 8-12 reps
+ - [Bent over row](https://liftmanual.com/smith-bent-over-row/) - top set of 5-9 reps, back off set of 8-12 reps (if you have access to a [seal row bench](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fi.ytimg.com%2Fvi%2F4H2ItXwUTp8%2Fmaxresdefault.jpg&f=1&nofb=1&ipt=72b122a569a505a7fc31806050a8e9fa21a98eae1b2a9b9dbb2dc7ac0f9f771e), use it)
+ - [Assisted pullup](https://liftmanual.com/assisted-pull-up/) - top set of 5-9 reps, back off set of 8-12 reps
+ - [Kneeling lat pulldown](https://liftmanual.com/cable-kneeling-one-arm-lat-pulldown/) - top set of 5-9 reps, back off set of 8-12 reps
+ - [Dumbell preacher curl](https://liftmanual.com/dumbbell-one-arm-zottman-preacher-curl/) - 3 sets of 8-12 reps
+
+#### Tuesday - Legs
+ - [Abductor](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fhomegymreview.co.uk%2Fwp-content%2Fuploads%2Fexercises%2F36111101-Lever-Seated-Hip-Abduction-female_Hips_max-scaled.jpg&f=1&nofb=1&ipt=f5708dcda87214df135d682621cd2d6fb2bcc88aeb67e6866acb0798c8317aee) - 3 sets of 8-12 reps
+ - [Adductor](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fliftmanual.com%2Fwp-content%2Fuploads%2F2023%2F04%2Flever-seated-hip-adduction.jpg&f=1&nofb=1&ipt=5bc3891a8e2068bcf3aa81f950fa227ce187e0ac18fdac3366984c98db279b2b) - 3 sets of 8-12 reps
+ - [Hip Thrusts](https://liftmanual.com/weighted-hip-thrusts/) - 3 sets of 8-12 reps ([use a barbell with a pad](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fhomegymreview.co.uk%2Fwp-content%2Fuploads%2Fexercises%2F10601101-Barbell-Hip-Thrust_Hips_max-2048x733.jpg&f=1&nofb=1&ipt=ec32dae2ba418f46118205a51bcd8b9e18f9044f604c8e50c601fa40c23d6d02))
+ - [Kickbacks](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fwww.inspireusafoundation.org%2Fwp-content%2Fuploads%2F2022%2F01%2Fcable-kickback-alternatives.jpg&f=1&nofb=1&ipt=59532cc853d6f6fa7ba81fc836c203081eb9b753896be2a6e53f52d9bbb1d295) 3 sets of 8-12 reps
+ - [Smith Bulgarian squat](https://liftmanual.com/smith-single-leg-split-squat/) - 3 sets of 8-12 reps per leg
+ - [Calf raises](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ffitnessvolt.com%2Fwp-content%2Fuploads%2F2014%2F01%2FStanding-Calf-Raise.jpg&f=1&nofb=1&ipt=51e2ac545d528ccab8482b0f8758afb99ec68f509aecd7e39fb20047ce96fc95) - 3 sets of 8-12 reps
+
+#### Wednesday - Rest
+
+#### Thursday - Upper
+ - [Cable lateral raises](https://liftmanual.com/cable-one-arm-lateral-raise/) - 3 sets of 8-12 reps per arm
+ - [[Dumbell chest press (flat)](https://liftmanual.com/dumbbell-bench-press/) - 3 sets of 8-12 reps
+ - [Kneeling lat pulldown](https://liftmanual.com/cable-kneeling-one-arm-lat-pulldown/) - 3 sets of 8-12 reps
+ - [Dumbell chest press (incline)](https://liftmanual.com/dumbbell-incline-bench-press/) - 3 sets of 8-12 reps
+ - [Bent over row](https://liftmanual.com/smith-bent-over-row/) - 3 sets of 8-12 reps
+ - [Cable pushdowns](https://liftmanual.com/cable-pushdown/) - 3 sets of 8-12 reps
+ - [Dumbell preacher curl](https://liftmanual.com/dumbbell-one-arm-zottman-preacher-curl/) - 3 sets of 8-12 reps
+
+#### Friday - Lower
+ - [Leg extensions](https://weighttraining.guide/wp-content/uploads/2016/05/lever-leg-extension-resized-1024x683.png) - 3 sets of 8-12 reps
+ - [Hamstring curls](https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fcdn.shopify.com%2Fs%2Ffiles%2F1%2F0250%2F0362%2F2496%2Farticles%2F5fd7d1877ec308ebe3f92223_seated-hamstring-curl.png%3Fv%3D1641744558&f=1&nofb=1&ipt=1fe465b242cebe6b4584e1a4d0659c2a2e66c43cd2fef536a23bdb744e507a36) - 3 sets of 8-12 reps
+ - [Smith Bulgarian squat](https://liftmanual.com/smith-single-leg-split-squat/) - 3 sets of 8-12 reps per leg
+ - [Abductor](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fhomegymreview.co.uk%2Fwp-content%2Fuploads%2Fexercises%2F36111101-Lever-Seated-Hip-Abduction-female_Hips_max-scaled.jpg&f=1&nofb=1&ipt=f5708dcda87214df135d682621cd2d6fb2bcc88aeb67e6866acb0798c8317aee) - 3 sets of 8-12 reps
+ - [Adductor](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fliftmanual.com%2Fwp-content%2Fuploads%2F2023%2F04%2Flever-seated-hip-adduction.jpg&f=1&nofb=1&ipt=5bc3891a8e2068bcf3aa81f950fa227ce187e0ac18fdac3366984c98db279b2b) - 3 sets of 8-12 reps
+ - [Calf raises](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ffitnessvolt.com%2Fwp-content%2Fuploads%2F2014%2F01%2FStanding-Calf-Raise.jpg&f=1&nofb=1&ipt=51e2ac545d528ccab8482b0f8758afb99ec68f509aecd7e39fb20047ce96fc95) - 3 sets of 8-12 reps
