@@ -33,7 +33,7 @@ I am not a doctor, I will not comment on this.
 
 ## Exercise
 
-I firmly belive that everyone should do some form of resistance training, you can keep this to solely bodyweight exercises if you like but you'll be limited on the results you'll get, including long term joint health results. **Squat now so you can stand up when your're 80.**
+I firmly belive that everyone should do some form of resistance training, you can keep this to solely bodyweight exercises if you like but you'll be limited on the results you'll get, including long term joint health results. **Squat now so you can stand up when you're 80.**
 
 ### On "getting bulky"
 Many many many femminine presenting people I have talked to regarding strength training have expressed a worry about "getting bulky", citing examples of prefessional female body builders or rugby players. Unless it is your goal, **You will not get "bulky"**, getting anywhere close to "bulky" is a deliberate choice that takes years of strength training and a very particular diet, most people will not even see those results in their lifetime let alone by accident.
@@ -53,4 +53,4 @@ When starting out you should find a weight that puts you at the limit of your ab
 I follow a Push-Pull-Legs-Rest-Upper-Lower-Rest routine for my week, as detailed below, the days are more guidelines so obviously adjust to suit you:
 
 #### Sunday - Push
- - Cable
+ - [Cable lateral raises](https://www.inspireusafoundation.org/file/2023/11/single-arm-lateral-raise-muscles-768x450.png) - 3 sets of 8-12 reps per arm
