@@ -95,3 +95,17 @@ I follow a Push-Pull-Legs-Rest-Upper-Lower-Rest routine for my week, as detailed
  - [Abductor](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fhomegymreview.co.uk%2Fwp-content%2Fuploads%2Fexercises%2F36111101-Lever-Seated-Hip-Abduction-female_Hips_max-scaled.jpg&f=1&nofb=1&ipt=f5708dcda87214df135d682621cd2d6fb2bcc88aeb67e6866acb0798c8317aee) - 3 sets of 8-12 reps
  - [Adductor](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fliftmanual.com%2Fwp-content%2Fuploads%2F2023%2F04%2Flever-seated-hip-adduction.jpg&f=1&nofb=1&ipt=5bc3891a8e2068bcf3aa81f950fa227ce187e0ac18fdac3366984c98db279b2b) - 3 sets of 8-12 reps
  - [Calf raises](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ffitnessvolt.com%2Fwp-content%2Fuploads%2F2014%2F01%2FStanding-Calf-Raise.jpg&f=1&nofb=1&ipt=51e2ac545d528ccab8482b0f8758afb99ec68f509aecd7e39fb20047ce96fc95) - 3 sets of 8-12 reps
+
+### Influencers that aren't shit and further reading
+
+As I said before, there are tonnes of snake oil influencers out there peddaling bollocks, but there are a few that are actally worth looking into:
+
+ - Cayle Marklew (@caylept on insta) is a career pt that doesn't push anything but his own workout programs and even then only vaugely, my routine is very loosely based on his.
+ - Liam Fisher-Layton (@the_plant_slant on insta), a sort of pro bodybuilder that actually doesnt have a shit relationship with food, also the fibre goat
+ - Patty (@leanbeefpatty on insta) bit more of a salesperson but a good persnality with a balanced food and exercise
+
+Other than that, just be skeptical of anyone selling you anything.
+
+### Final note on stretching
+You should stretch. Its as simple as that.
+However, finding good stretching routines has always eluded me so I have a hard time reccomending anything, please look into mobility exercises on your own time. Lifting in absence of stretching will limit your movements over time so finding a routine you can stick with is well worth it.
