@@ -18,18 +18,12 @@ Refer to [Rum List](/rum.md) for more extensive list for tiki drinks.
 
  - [Bitter Truth Falernum](https://www.drinksupermarket.com/the-bitter-truth-golden-falernum-50cl-18-abv) - £19.99
 
- - [Palm tree swizzle sticks](https://www.etsy.com/uk/listing/1796178519/tiki-palm-tree-swizzle-sticks) - £12.50
-
- - [Scrappy's Fire Water](https://www.masterofmalt.com/bitters/scrappys-bitters/scrappys-fire-tincture-bitters-bitters-53570/) - £17.86
-
 
 ## £20>x<£30
 
  - [Tiki Cup](https://www.etsy.com/uk/listing/1138548487/handmade-green-tiki-mezcal-cup-handmade) - £25
 
  - [Libbey Tiki mug](https://www.etsy.com/uk/listing/1743244078/vintage-libby-green-bamboo-tiki-tumbler) - £27.79
-
- - [Goslings black seal](https://www.masterofmalt.com/rum/goslings-black-seal-rum/) - £24.99
 
  - [Mount Gay Eclipse](https://www.masterofmalt.com/rum/mount-gay-eclipse-rum/) - £22.95
 
