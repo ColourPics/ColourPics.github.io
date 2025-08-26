@@ -70,6 +70,7 @@ New or used, no preffarance really but links provided offer both options, feel f
 # Clothes and jewlery
  - [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
  - [Silver star studs](https://cheerings.co.uk/products/silver-star-stud-earrings)
+ - [Ghost charm earrings (irridecent)](https://www.tattydevine.com/products/ghost-charm-earrings?variant=41612873334832)
 
 # Household
  - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat)
