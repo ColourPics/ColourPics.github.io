@@ -5,6 +5,8 @@
  - [Evergreen Palette](https://www.lethalcosmetics.com/product/evergreen-palette/)
  - [Vanish™ Airbrush Concealer (shade: willow 2.3)](https://www.hourglasscosmetics.co.uk/products/vanish-airbrush-concealer?variant=55043822649721)
  -  [Hourglass waterproof gel eyeliner (not cave/brown or black)](https://www.hourglasscosmetics.co.uk/products/voyeur-waterproof-gel-eyeliner?variant=39854685880455)
+ -  [Makeup Brush set 1](https://uk.morphe.com/collections/makeup-brush-sets/products/best-of-blends-8-piece-face-eye-brush-set)
+ -  [Makeup Brush set 2](https://www.lookfantastic.com/p/sigma-basic-eyes-kit/11234813/)
 
 # Food, Drinks and related:
  - [yFood meal powder (hazelnut, cookie, peanut or coffee flavour)](https://uk.yfood.com/collections/powder?view=bundle)
