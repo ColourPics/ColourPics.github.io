@@ -55,6 +55,9 @@
  - [Windsor and Newton oil paint (titanium white, 200ml)](https://www.cassart.co.uk/winsor-newton-artists-oil-colour/)
  - [RGM Wooden Palette Knife Pack of 6](https://www.cassart.co.uk/rgm-wooden-palette-knife-pack-of-6--c/)
  - [Winsor & Newton Workstation A3 Ebro Table Easel](https://www.cassart.co.uk/workstation-a3-ebro-table-easel-a3--c/)
+ - [Mini Sardine tin embroidery kit](https://stitchedupkits.com/products/mini-sardines-tin)
+ - [Benro KolaPod](https://www.wexphotovideo.com/benro-koalapod-3-legs-3119377/?sv_campaign_id=103504&sv_tax1=affiliate&sv_tax3=Future+Publishing.&sv_tax4=0&sv_affiliate_id=103504&awc=2298_1755288541_de2340e4552ec9ec18c880cb000bbdad&utm_source=aw)
+ - [Kaweco Sketch Up Pencil](https://cultpens.com/products/kaweco-sketch-up-pencil-matt-black-5-6mm?variant=43642551697651&gad_campaignid=20557170237)
    
 
 
