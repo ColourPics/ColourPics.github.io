@@ -31,6 +31,7 @@
  - [Devon Cream tea (50g)](https://www.birdandblendtea.com/products/devon-cream-tea)
  - [Campfires & Vampires Tea (50g)](https://www.birdandblendtea.com/products/campfires-vampires-tea?_pos=1&_psq=campfires&_ss=e&_v=1.0)
  - [Tea taster bundle (nothing minty otherwise go crazy)](https://www.birdandblendtea.com/products/build-your-own-tea-tasting-pack/5-tea-set)
+ - [Vault City Orange Creamsicle](https://vaultcity.co.uk/products/orange-creamsicle-copy)
    
 
 # Books: 
@@ -66,6 +67,9 @@ New or used, no preffarance really but links provided offer both options, feel f
    - Soft flasks listed above are intended to go with large energy gel refils listed below
  - [PF 300 Flow energy Gel (1 pouch)](https://www.precisionhydration.com/products/pf-300-flow-gel/)
  - [High5 Energy Gel Refill (any flavour)](https://highfive.co.uk/products/refill-energy-gel?variant=44180193280250)
+ - [Injinji Socks (XS/S)](https://www.ultramarathonrunningstore.com/Injinji-Artist-Designed-Trail-Socks-Crew-p/injinjiartistwc.htm?gad_campaignid=208745366)
+ - [Sport Tape Kenesiology Tape](https://sporttape.co.uk/products/kinesiology-tape?variant=50228041187644)
+ - [Megababe Anti-Chafe stick](https://www.boots.com/megababe-thigh-rescue-anti-friction-stick-60g-10342766?traffic=paid.shopping&gad_campaignid=21096115648)
 
 # Clothes and jewlery
  - [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
@@ -85,3 +89,4 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [Sennelier Extra Fine Oil Stick 12ml](https://www.cassart.co.uk/sennelier-extra-fine-oil-stick-12ml-apple-still-life-set-of-6/)
  - [Rico Ricorumi Glow in the Dark DK (at least 2 balls prefarably)](https://www.woolwarehouse.co.uk/yarn/rico-ricorumi-glow-in-the-dark-dk-white-001-25g)
  - [Cass Art Gridded Double Sided Self Healing Cutting Mat (A3)](https://www.cassart.co.uk/Cass-Art-Gridded-Double-Sided-Self-Healing-Cutting-Mat/)
+ - [M+R Brass Sharpener](https://www.hamiltonpens.com/collections/mobius-ruppert/products/m-r-brass-pencil-sharpener-single-hole)
