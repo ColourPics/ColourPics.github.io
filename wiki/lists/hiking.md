@@ -34,6 +34,8 @@
 ## £30>x<£60
 
  - [Toaks Light 550ml Pot](https://ultralightoutdoorgear.co.uk/light-titanium-550ml-pot/) - £37.99
+
+ - [Mammut Pro first aid kit](https://www.mammut.com/uk/en/products/2530-00170-3271/first-aid-kit-pro) - £42
   
  - [Petzl Boreo Helmet (Orange, M/L)](https://bananafingers.co.uk/petzl-boreo) - £53.39
 
@@ -49,6 +51,8 @@
 
  - [OMM Halo Trousers](https://ultralightoutdoorgear.co.uk/halo-pants/) - £74.99
 
+ - [Salomon Elixir Activ Mid (Size 10)](https://www.nevisport.com/salomon-mens-elixir-activ-mid-gore-tex-hiking-boots) - £80
+
  - [Montbell Umbrella 55](https://ultralightoutdoorgear.co.uk/travel-umbrella-55/) - £74.99
 
  - [DMM Wallnut Set](https://bananafingers.co.uk/dmm-wallnut-set-1-11) - £98.50
@@ -62,6 +66,10 @@
 ## x>£100
 
  - [Durston X-Mid 2 Solid](https://durstongear.com/products/x-mid-2-solid) - £242
+
+ - [La Sportiva TX4 Evo Mid GTX (9/44)](https://www.alpinetrek.co.uk/la-sportiva-tx4-evo-mid-gtx-approach-shoes/) - £168
+
+ - [Julbo Vermont Spectron](https://ultralightoutdoorgear.co.uk/vermont-spectron-3-sunglasses/) - £139.99
 
  - [Helinox Chair Zero](https://ultralightoutdoorgear.co.uk/chair-zero/) - £129.99
 
