@@ -11,6 +11,7 @@
  -  [Helinox chair zero (any colour)](https://helinox.co.uk/products/chair-zero?variant=39395031351374)
  -  [Durston kakwa 55 (unsure on size yet, plese ask first)](https://durstongear.com/products/kakwa-55?variant=47966061723939)
  -  [Zenbivy Ultralight mattress (25x72 rectanguular)](https://zenbivy.co.uk/products/ultralight-mattress)
+ -  [Introduction to Scrambling course](https://www.themountaineeringcompany.co.uk/mountaineeringcourses/introduction-to-scrambling/)
 
 
 # Clothes and Jewlery:
@@ -22,3 +23,4 @@
  - [Haglofs L.I.M Airak 24](https://www.haglofs.com/en/women/lim-airak-24-6063055LR)
  - [Daylight Artist Studio Lamp V2](https://www.cassart.co.uk/Daylight-Artist-Studio-Lamp-2/)
  - [Meeden Studio H frame easel (please let me know if buying due to space)](https://meedenart.com/products/phlyw14-versatile-studio-h-frame-easel)
+ - [Applique Prde Flag (150*190)](https://www.flyingcolours.org/progress-pride-intersex-flag/)
