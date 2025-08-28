@@ -2,7 +2,15 @@
 
  - [Microplane](https://www.souschef.co.uk/products/microplane-cinnamon-orange-premium-zester) - £17.99
 
+ - [Ikea Skadis shelf](https://www.ikea.com/gb/en/p/skadis-display-shelf-white-20591841/) - £2
+
+ - [Ikea Skadis hooks](https://www.ikea.com/gb/en/p/skadis-hook-white-50335618/) - £1
+
+ - [Ikea Skadis hoos (smol)](https://www.ikea.com/gb/en/p/skadis-hook-white-20320802/) - £2
+
  - [Oven Thermometer](https://www.souschef.co.uk/products/oven-thermometer) - £4.99
+
+ - [Ikea Uppdatera](https://www.ikea.com/gb/en/p/uppdatera-box-white-20546467/) - £2
 
  - [Measuring Spoons](https://www.souschef.co.uk/products/set-of-4-stainless-steel-measuring-spoons) - £4.99
 
@@ -26,7 +34,13 @@
 
  - [Mandoline](https://www.souschef.co.uk/products/japanese-mandoline) - £39.99
 
+ - [De Buyer Prim (24cm)](https://www.souschef.co.uk/products/de-buyer-prim-appety-stainless-steel-frying-pan-24cm) - £41.99
+
  - [Peugeot Pepper Mill](https://www.souschef.co.uk/products/peugeot-paris-natural-pepper-mill) - £33.99
+
+ - [De Buyer Mineral B (24cm)](https://www.souschef.co.uk/products/de-buyer-mineral-b-frying-pan-24cm?variant=40111157936186) - £35.99
+
+ - [De Buyer Glass Lid (28cm)](https://www.souschef.co.uk/products/de-buyer-glass-lid-for-alchimy-range-14cm?variant=39398669844538) - £33.99
 
 ## £60>x<£100
 
