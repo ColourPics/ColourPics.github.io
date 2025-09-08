@@ -76,3 +76,7 @@
  - [Petzl Volta Guide (30m)](https://bananafingers.co.uk/petzl-volta-guide-9mm) - £102.67
 
  - [DMM Dragon Cam Set](https://bananafingers.co.uk/dmm-dragon-cam-set-0-1-2-3-4-5) - £359.95
+
+ - [Durston X-Mid Pro 2+](https://durstongear.com/products/x-mid-pro-plus-tent-ultralight-thruhiking?srsltid=AfmBOoqmJReckUHmm882BBYjzMMKxF67ihsu82VxHE3rJWQAIr9iJI-1) - £588
+
+ - [Hilleberg Nammatj 3](https://hilleberg.com/eng/products/tent/Nammatj) - £850
