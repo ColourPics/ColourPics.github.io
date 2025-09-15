@@ -67,6 +67,10 @@
 
  - [Durston X-Mid 2 Solid](https://durstongear.com/products/x-mid-2-solid) - £242
 
+ - [Mamut Aenergy](https://www.mammut.com/uk/en/products/2560-00172-0246/aenergy-st-20-25)- £135
+
+ - [Hestra 5 Finger Leather (Blue/Yellow, Size **CHECK**)](https://www.hestragloves.uk/army-leather-coach-czone-5-finger-navy-royal-blue) - £140
+
  - [La Sportiva TX4 Evo Mid GTX (9/44)](https://www.alpinetrek.co.uk/la-sportiva-tx4-evo-mid-gtx-approach-shoes/) - £168
 
  - [Julbo Vermont Spectron](https://ultralightoutdoorgear.co.uk/vermont-spectron-3-sunglasses/) - £139.99
