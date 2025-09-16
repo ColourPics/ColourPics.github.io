@@ -84,3 +84,5 @@
  - [Durston X-Mid Pro 2+](https://durstongear.com/products/x-mid-pro-plus-tent-ultralight-thruhiking?srsltid=AfmBOoqmJReckUHmm882BBYjzMMKxF67ihsu82VxHE3rJWQAIr9iJI-1) - £588
 
  - [Hilleberg Nammatj 3](https://hilleberg.com/eng/products/tent/Nammatj) - £850
+
+ - Pelican Air Case (Between 1510 and 1690) - Prices vary on the second hand market but ususally ≈ £250
