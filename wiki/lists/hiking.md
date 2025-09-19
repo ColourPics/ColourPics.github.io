@@ -78,3 +78,5 @@
  - [Hilleberg Nammatj 3](https://hilleberg.com/eng/products/tent/Nammatj) - £850
 
  - Pelican Air Case (Between 1510 and 1690) - Prices vary on the second hand market but ususally ≈ £250
+
+ - [Enlightened Equipment Revelation](https://ultralightoutdoorgear.co.uk/revelation-950fp-20f-down-quilt-with-draft-collar/) - £489.99
