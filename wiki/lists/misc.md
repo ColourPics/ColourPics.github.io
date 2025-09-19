@@ -2,6 +2,8 @@
 
  - [Primal ankle/wrist cuffs](https://www.primalstrength.com/products/primal-performance-series-ankle-wrist-cuff) - £17
 
+ - [Motex Label Maker](https://sanwacraft.com/products/motex-e-303-compact-embossing-label-maker) - £10
+
 
 ## £20>x<£30
 
