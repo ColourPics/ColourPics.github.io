@@ -12,8 +12,6 @@
 
  - [Nordisk Titanium Pegs](https://ultralightoutdoorgear.co.uk/titanium-tooth-peg-6-pack/) - £19.99
 
- - [BRS 3000-T Stove](https://ultralightoutdoorgear.co.uk/brs-3000-t-stove/) - £18.99
-
  - [Gram Counter Grear Fuel Transfer Nozzle](https://ultralightoutdoorgear.co.uk/fuel-saver-gas-transfer-device/) - £19.99
 
  - [Gossamer Gear Umbrella Clamp](https://ultralightoutdoorgear.co.uk/handsfree-umbrella-clamp/) - £9.99
@@ -33,17 +31,11 @@
 
 ## £30>x<£60
 
- - [Toaks Light 550ml Pot](https://ultralightoutdoorgear.co.uk/light-titanium-550ml-pot/) - £37.99
-
  - [Mammut Pro first aid kit](https://www.mammut.com/uk/en/products/2530-00170-3271/first-aid-kit-pro) - £42
   
  - [Petzl Boreo Helmet (Orange, M/L)](https://bananafingers.co.uk/petzl-boreo) - £53.39
 
  - [Sawyer Mini](https://ultralightoutdoorgear.co.uk/mini-filter/) - £39.99
-
- - [Nemo Fillo Elite](https://ultralightoutdoorgear.co.uk/fillo-elite-pillow/) - £52.99
-
- - [Nitecore NU25](https://ultralightoutdoorgear.co.uk/nu25-mct-ul-ultra-light-rechargeable-head-torch/) - £44.99
 
  - [Montane Dart Lite (Small)](https://ultralightoutdoorgear.co.uk/dart-lite-long-sleeve-t-shirt/) - £42.99
 
