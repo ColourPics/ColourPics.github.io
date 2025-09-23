@@ -40,8 +40,6 @@
 
  - [De Buyer Mineral B (24cm)](https://www.souschef.co.uk/products/de-buyer-mineral-b-frying-pan-24cm?variant=40111157936186) - £35.99
 
- - [De Buyer Glass Lid (28cm)](https://www.souschef.co.uk/products/de-buyer-glass-lid-for-alchimy-range-14cm?variant=39398669844538) - £33.99
-
 ## £60>x<£100
 
  - [Anova Vacuum Sealer](https://www.souschef.co.uk/products/anova-sous-vide-vacuum-sealer) - £79.99
@@ -50,4 +48,3 @@
 
  - [End grain chopping board](https://www.hardwoodchoppingboards.co.uk/product/oak-end-grain-chopping-board-14/) - £135
 
- - [De Buyer Alchimy Pan (28cm)](https://www.souschef.co.uk/products/de-buyer-alchimy-saute-pan-24cm-straight?variant=39398667092026) - £155.99
