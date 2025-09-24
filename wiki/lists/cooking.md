@@ -34,6 +34,8 @@
 
  - [Mandoline](https://www.souschef.co.uk/products/japanese-mandoline) - £39.99
 
+ - [Zeroll Size 24](https://www.nisbets.co.uk/zeroll-original-ice-cream-scoop-size-24/gd618) - £41 (inc VAT)
+
  - [De Buyer Prim (24cm)](https://www.souschef.co.uk/products/de-buyer-prim-appety-stainless-steel-frying-pan-24cm) - £41.99
 
  - [Peugeot Pepper Mill](https://www.souschef.co.uk/products/peugeot-paris-natural-pepper-mill) - £33.99
@@ -47,4 +49,6 @@
 ## x>£100
 
  - [End grain chopping board](https://www.hardwoodchoppingboards.co.uk/product/oak-end-grain-chopping-board-14/) - £135
+
+ - [Kitchenaid](https://www.ebay.co.uk/sch/i.html?_nkw=kitchenaid+pro&_sacat=0&_from=R40&rt=nc&LH_ItemCondition=3000) - Used price hovers around £270 (Please god don't buy a new one)
 
