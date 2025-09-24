@@ -4,6 +4,10 @@
 
  - [Motex Label Maker](https://sanwacraft.com/products/motex-e-303-compact-embossing-label-maker) - £10
 
+ - [Cerberus Deadlift Socks](https://cerberus-strength.com/products/deadlift-socks) - £12
+
+ - [Inzer Deadlift Socks (L-2XL)](https://inzer.com/en-gb/products/power-lifting-socks) - £16
+
 
 ## £20>x<£30
 
@@ -18,3 +22,5 @@
  - [Herman Miller Keyn office chair](https://www.ebay.co.uk/sch/i.html?_nkw=herman+miller+keyn&_sacat=0&_from=R40&_trksid=p2334524.m570.l1313&LH_TitleDesc=0&_odkw=herman+miller+cosm&_osacat=0) - Used price approx £150
 
  - [Herman Miller Portrait Chair](https://www.ebay.co.uk/sch/i.html?_nkw=herman+miller+portrait&_sacat=0&_from=R40&_trksid=p2334524.m570.l1313&LH_TitleDesc=0&_odkw=herman+miller+keyn&_osacat=0) - Used price approx £150
+
+ - [Velaasa Strake Lifting shoes (10.5/12)](https://velaasa.com/products/velaasa-strake-olympic-weightlifting-shoe-in-winter-white?variant=33042428493847) - £152
