@@ -22,6 +22,8 @@
 
  - [DMM NutBuster](https://bananafingers.co.uk/dmm-nutbuster) - £12.30
 
+ - [Nylofume pack liner](https://outdoorgearessentials.co.uk/products/nyloflume-pack-liners-just-25-9g-each-coming-in-end-of-feb) - £3.95
+
 
 ## £20>x<£30
 
