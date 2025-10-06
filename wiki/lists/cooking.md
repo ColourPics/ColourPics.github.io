@@ -46,6 +46,8 @@
 
  - [Anova Vacuum Sealer](https://www.souschef.co.uk/products/anova-sous-vide-vacuum-sealer) - £79.99
 
+ - [Yakumi Pans #00](https://knivesforchefs.co.uk/collections/yakumi-pans/products/00-small-8pc-long) - £70
+
 ## x>£100
 
  - [End grain chopping board](https://www.hardwoodchoppingboards.co.uk/product/oak-end-grain-chopping-board-14/) - £135
