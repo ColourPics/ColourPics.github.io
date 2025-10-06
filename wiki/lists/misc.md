@@ -12,6 +12,10 @@
 
  - [Velcro Onewrap](https://www.cmwltd.co.uk/p/velcro-one-wrap-tie-200mm-x-20mm-yellow-25) - £8.71
 
+ - [Platinum Fountain Pen Converter](https://www.clothandpaper.com/en-gb/collections/fountain-pens/products/platinum-fountain-pen-converter) - £10
+
+ - [Dominant Industry Standard Ink (Any colour)](https://cultpens.com/products/dominant-industry-standard-bottled-ink-25ml) - £8.50
+
 
 ## £20>x<£30
 
@@ -21,9 +25,13 @@
 
  - [Aer Slim Pouch](https://aersf.co.uk/products/slim-pouch-1?country=GB) - £33.15
 
+ - [Cloth & Paper Vertical Weekly Planner 2026](https://www.clothandpaper.com/en-gb/collections/2026-dated-collection/products/2026-planner-bundle-vertical-weekly-monday-start) - £68
+
 ## £60>x<£100
 
  - [Orangatang Caguma 77a](https://vandemlongboardshop.co.uk/products/orangatang-caguama-wheels-85mm) - £74.95
+
+ - [Platinum Curidas Crystal Medium](https://www.clothandpaper.com/en-gb/collections/fountain-pens/products/platinum-curidas-fountain-pen-prism-crystal-medium) - £73
 
 ## x>£100
 
@@ -33,6 +41,10 @@
 
  - [Velaasa Strake Lifting shoes (10.5/12)](https://velaasa.com/products/velaasa-strake-olympic-weightlifting-shoe-in-winter-white?variant=33042428493847) - £152
 
+ - [Pilot Vanishing Point](https://www.clothandpaper.com/en-gb/collections/fountain-pens/products/pilot-vanishing-point-fountain-pen) - £160
+
  - [Latdyachtz Drop Cat 38](https://vandemlongboardshop.co.uk/products/landyachtz-drop-cat-38-dune-drop-through-longboard) - £201
 
  - [XS Fisherman's Musette](https://www.bleu-de-chauffe.com/en/the-fisherman-s-musette/1793-fisherman-s-musette-xs-suede-ocher-3700716020916.html) - £178
+
+ - [Cloth & Paper A6 Leather Cover (Cypress)](https://www.clothandpaper.com/en-gb/products/foundations-6-ring-leather-agenda-a5?variant=44510503502014) - £146
