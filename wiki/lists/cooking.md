@@ -24,6 +24,8 @@
 
  - [Cafe Bustelo](https://www.americangrocer.co.uk/products/cafe-bustelo-espresso-6ct) - £3.99
 
+ - [Fish Slice](https://www.souschef.co.uk/products/wood-handle-stainless-steel-slotted-spatula) - £19
+
 ## £20>x<£30
 
  - [Splatter Enamel Roasting Pan (26cm)](https://www.souschef.co.uk/products/splatter-fest-enamel-roasting-and-serving-dish-yellow-21cm?variant=39400465727546) - £26.99
