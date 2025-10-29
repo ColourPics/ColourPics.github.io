@@ -17,10 +17,10 @@
 # Clothes and Jewlery:
  - [Haglofs L.I.M GTX II jacket (colours: Aurora, desert yellow or Mint Stone in size M)](https://www.haglofs.com/en/women/tops-women/tops-jackets-women/lim-gtx-ii-jacket-women-6074184T9?variantId=7318841793092)
 
-# Household
 
 # Other 
  - [Haglofs L.I.M Airak 24](https://www.haglofs.com/en/women/lim-airak-24-6063055LR)
  - [Daylight Artist Studio Lamp V2](https://www.cassart.co.uk/Daylight-Artist-Studio-Lamp-2/)
  - [Meeden Studio H frame easel (please let me know if buying due to space)](https://meedenart.com/products/phlyw14-versatile-studio-h-frame-easel)
  - [Applique Prde Flag (150*190)](https://www.flyingcolours.org/progress-pride-intersex-flag/)
+ - [Muud leather project bag (any style)](https://muudstore.com/collections/shop)
