@@ -41,12 +41,6 @@
  - [Haglofs Outsiders Tee Women (any colour but brown and pink, size M)](https://www.haglofs.com/en/women/tops-women/tops-shirt-tshirts-women/outsiders-tee-women-6076642C5)
  - [Ask & Embla Odyssey Earrings (gold)](https://askandembla.net/products/odyssey-earrings)
 
-# Household:
- - [Blue wave ramen bowl](https://www.souschef.co.uk/products/blue-wave-ramen-bowl)
- - [Baking tray](https://www.souschef.co.uk/products/usa-pan-large-cookie-sheet)
- - [Chefs press (13oz size)](https://www.souschef.co.uk/products/the-chefs-press-8oz?variant=39844164173882)
- - [Cataleya Pet Bed](https://www.wayfair.co.uk/pets/pdp/archie-oscar-cataleya-rectangle-cat-bed-u004072035.html)
-
 # Other: 
  - [Leuchtturm1917 Notebook Master Classic (A4+, harcover, dot rulled, orange colour)](https://www.leuchtturm1917.co.uk/notebook-master-classic-a4-hardcover-235-numbered-pages-rising-sun-dotted.html)
  - [Leuchtturm1917 Sketchbook (Medium landscape, port red colur)](https://www.leuchtturm1917.co.uk/sketchbook-landscape-a5-hardcover-112-pages-150-gsqm-plain-port-red.html)
@@ -59,6 +53,8 @@
  - [Mini Sardine tin embroidery kit](https://stitchedupkits.com/products/mini-sardines-tin)
  - [Benro KolaPod](https://www.wexphotovideo.com/benro-koalapod-3-legs-3119377/?sv_campaign_id=103504&sv_tax1=affiliate&sv_tax3=Future+Publishing.&sv_tax4=0&sv_affiliate_id=103504&awc=2298_1755288541_de2340e4552ec9ec18c880cb000bbdad&utm_source=aw)
  - [Kaweco Sketch Up Pencil](https://cultpens.com/products/kaweco-sketch-up-pencil-matt-black-5-6mm?variant=43642551697651&gad_campaignid=20557170237)
+ - [Captains of Crush hand grippers (60lbs if buying one)](https://www.strengthshop.co.uk/products/captains-of-crush-hand-grippers)
+ - 
    
 
 
