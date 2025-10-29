@@ -25,6 +25,7 @@
  - [Broccoli Hoops](https://www.wolfandmoon.com/collections/earrings/products/broccoli-hoops)
  - [Mini Flowers Set III](https://www.wolfandmoon.com/collections/earrings/products/mini-flowers-set-iii)
     - any of the earings from Wolf & Moon listed above can be ordered as a hoop set or charms only. Only 1 set of hoops is needed and all charms fit onto the hoops. The Golf filled hoops are prefered
+    - [MTE Treg guide trousers (black, size L), make sure these can be returned as trousers are hard to fit](https://www.vans.com/en-gb/p/mte-trek-guide-trousers-VN000M6XBLK?msockid=058800ba6d4063ff0c7c16c06c6762f3)
    
 # Household
  - [Ninja ZEROSTICK 30cm Frying Pan](https://ninjakitchen.co.uk/product/ninja-zerostick-30cm-frying-pan-c30030uk-zidC30030UK)
