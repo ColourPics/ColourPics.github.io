@@ -31,6 +31,11 @@
  - [Splatter Enamel Roasting Pan (26cm)](https://www.souschef.co.uk/products/splatter-fest-enamel-roasting-and-serving-dish-yellow-21cm?variant=39400465727546) - £26.99
 
  - [Cantabrian Anchovies in Butter](https://www.thetinnedfishmarket.com/products/large-cantabrian-anchovies-in-butter-14-fillets?_pos=1&_sid=a498aa882&_ss=r) - £25.95 (Yes, spensive. But literally anything else from this site would be awesome)
+ 
+ -  [Blue wave ramen bowl](https://www.souschef.co.uk/products/blue-wave-ramen-bowl)
+
+ -  [Baking tray](https://www.souschef.co.uk/products/usa-pan-large-cookie-sheet)
+  
 
 ## £30>x<£60
 
@@ -44,6 +49,8 @@
 
  - [De Buyer Mineral B (24cm)](https://www.souschef.co.uk/products/de-buyer-mineral-b-frying-pan-24cm?variant=40111157936186) - £35.99
 
+ - [Chefs press (13oz size)](https://www.souschef.co.uk/products/the-chefs-press-8oz?variant=39844164173882)
+
 ## £60>x<£100
 
  - [Anova Vacuum Sealer](https://www.souschef.co.uk/products/anova-sous-vide-vacuum-sealer) - £79.99
@@ -55,4 +62,5 @@
  - [End grain chopping board](https://www.hardwoodchoppingboards.co.uk/product/oak-end-grain-chopping-board-14/) - £135
 
  - [Kitchenaid](https://www.ebay.co.uk/sch/i.html?_nkw=kitchenaid+pro&_sacat=0&_from=R40&rt=nc&LH_ItemCondition=3000) - Used price hovers around £270 (Please god don't buy a new one)
-
+ 
+ 
