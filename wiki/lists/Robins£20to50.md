@@ -20,6 +20,7 @@
  - [Misfits protein bars (any flavour)](https://misfits.health/collections/all)
  - [Bird & Blend Cold Brew Tea Bottle (sunrise orange colour)](https://www.birdandblendtea.com/products/cold-brew-tea-bottle?variant=44948593213601)
  - [Simith & Cross rum](https://www.thewhiskyexchange.com/p/14671/smith-cross-rum)
+ - [Oatnog](https://blacklinesdrinks.com/products/oatnogbottledcocktail)
 
 # Running/Hiking:
  - [Sea to Summit Aeros Down Pillow](https://ultralightoutdoorgear.co.uk/aeros-down-pillow/)
