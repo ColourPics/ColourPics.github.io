@@ -25,6 +25,8 @@
 
  - [Aer Slim Pouch](https://aersf.co.uk/products/slim-pouch-1?country=GB) - £33.15
 
+ - [2Pood Lifting Belt (S)](https://2pood.co.uk/products/showstopper-4-weightlifting-belt?variant=51139115450680) - £53.99
+
  - [Cloth & Paper Vertical Weekly Planner 2026](https://www.clothandpaper.com/en-gb/collections/2026-dated-collection/products/2026-planner-bundle-vertical-weekly-monday-start) - £68
 
 ## £60>x<£100
@@ -39,7 +41,7 @@
 
  - [Herman Miller Portrait Chair](https://www.ebay.co.uk/sch/i.html?_nkw=herman+miller+portrait&_sacat=0&_from=R40&_trksid=p2334524.m570.l1313&LH_TitleDesc=0&_odkw=herman+miller+keyn&_osacat=0) - Used price approx £150
 
- - [Velaasa Strake Lifting shoes (10.5/12)](https://velaasa.com/products/velaasa-strake-olympic-weightlifting-shoe-in-winter-white?variant=33042428493847) - £152
+ - [Anta Lifting shoes (10)]([https://velaasa.com/products/velaasa-strake-olympic-weightlifting-shoe-in-winter-white?variant=33042428493847](https://www.workout.eu/en/produkty/43856-anta-weightlifting-shoes-2-white.html#/3-shoe_size_uk-7)) - £194
 
  - [Pilot Vanishing Point](https://www.clothandpaper.com/en-gb/collections/fountain-pens/products/pilot-vanishing-point-fountain-pen) - £160
 
