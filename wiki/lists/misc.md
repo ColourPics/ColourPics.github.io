@@ -27,8 +27,6 @@
 
  - [2Pood Lifting Belt (S)](https://2pood.co.uk/products/showstopper-4-weightlifting-belt?variant=51139115450680) - £53.99
 
- - [Cloth & Paper Vertical Weekly Planner 2026](https://www.clothandpaper.com/en-gb/collections/2026-dated-collection/products/2026-planner-bundle-vertical-weekly-monday-start) - £68
-
 ## £60>x<£100
 
  - [Orangatang Caguma 77a](https://vandemlongboardshop.co.uk/products/orangatang-caguama-wheels-85mm) - £74.95
@@ -48,5 +46,3 @@
  - [Latdyachtz Drop Cat 38](https://vandemlongboardshop.co.uk/products/landyachtz-drop-cat-38-dune-drop-through-longboard) - £201
 
  - [XS Fisherman's Musette](https://www.bleu-de-chauffe.com/en/the-fisherman-s-musette/1793-fisherman-s-musette-xs-suede-ocher-3700716020916.html) - £178
-
- - [Cloth & Paper A6 Leather Cover (Cypress)](https://www.clothandpaper.com/en-gb/products/foundations-6-ring-leather-agenda-a5?variant=44510503502014) - £146
