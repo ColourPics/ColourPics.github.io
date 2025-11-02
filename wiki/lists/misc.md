@@ -44,5 +44,3 @@
  - [Pilot Vanishing Point](https://www.clothandpaper.com/en-gb/collections/fountain-pens/products/pilot-vanishing-point-fountain-pen) - £160
 
  - [Latdyachtz Drop Cat 38](https://vandemlongboardshop.co.uk/products/landyachtz-drop-cat-38-dune-drop-through-longboard) - £201
-
- - [XS Fisherman's Musette](https://www.bleu-de-chauffe.com/en/the-fisherman-s-musette/1793-fisherman-s-musette-xs-suede-ocher-3700716020916.html) - £178
