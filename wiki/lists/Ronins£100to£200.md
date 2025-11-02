@@ -12,6 +12,7 @@
  -  [Durston kakwa 55 (unsure on size yet, plese ask first)](https://durstongear.com/products/kakwa-55?variant=47966061723939)
  -  [Zenbivy Ultralight mattress (25x72 rectanguular)](https://zenbivy.co.uk/products/ultralight-mattress)
  -  [Introduction to Scrambling course](https://www.themountaineeringcompany.co.uk/mountaineeringcourses/introduction-to-scrambling/)
+ -  [Splash Paint Corduroy Long Overshirt (size M)](https://bravafabrics.com/products/splash-paint-corduroy-long-overshirt?variant=48934104531276)
 
 
 # Clothes and Jewlery:
