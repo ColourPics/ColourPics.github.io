@@ -27,6 +27,9 @@
     - any of the earings from Wolf & Moon listed above can be ordered as a hoop set or charms only. Only 1 set of hoops is needed and all charms fit onto the hoops. The Golf filled hoops are prefered
     - [MTE Treg guide trousers (black, size L), make sure these can be returned as trousers are hard to fit](https://www.vans.com/en-gb/p/mte-trek-guide-trousers-VN000M6XBLK?msockid=058800ba6d4063ff0c7c16c06c6762f3)
     - [Quarry Boxy Cotton Blouse Ecru (size M)](https://bravafabrics.com/collections/long-sleeve-blouses/products/quarry-boxy-cotton-blouse-ecru?variant=47474397512012)
+    - [The Indoor Society Long sleeve T-shirt (size s)](https://bravafabrics.com/collections/man/products/oscar-long-sleeve-t-shirt?variant=48588040307020)
+    - [Black Carnaby Circle Zip Cotton Polo Shirt (black S)](https://www.phixclothing.com/collections/polos/products/black-carnaby-cotton-o-ring-polo-shirt)
+    - 
   
 
 # Other 
