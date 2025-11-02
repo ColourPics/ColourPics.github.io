@@ -76,11 +76,6 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [Silver star studs](https://cheerings.co.uk/products/silver-star-stud-earrings)
  - [Ghost charm earrings (irridecent)](https://www.tattydevine.com/products/ghost-charm-earrings?variant=41612873334832)
 
-# Household
- - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat)
- - [Stainless Steel Dough Cutter & Scraper](https://www.souschef.co.uk/products/stainless-steel-dough-cutter-scraper)
- - [De Buyer Flexible Rounded Scraper](https://www.souschef.co.uk/products/de-buyer-flexible-rounded-scraper)
-
 # Other 
  - [Michael Harding Refined Poppy Oil 100ml](https://www.cassart.co.uk/michael-harding-refined-poppy-oil-100ml--c/)
  - [Zest It Safe Oil Paint Dilutant And Brush Cleaner (500ml size)](https://www.cassart.co.uk/zest-it-safe-oil-paint-dilutant-and-brush-cleaner/)
