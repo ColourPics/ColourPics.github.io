@@ -35,6 +35,16 @@ Refer to [Rum List](/rum.md) for more extensive list for tiki drinks.
 
  - [Bistro Striker](https://maisonabsinthe.fr/en/dicharry-porcelain-match-strike/) - £28
 
+ - [Ceramic Tiki Mug Seashell](https://littlegrassshack.co.uk/product/ceramic-tiki-mug-seashell-coral/) - £28
+
+ - [Ceramic Tiki Mug Witch Doctor](https://littlegrassshack.co.uk/product/witch-doctor/) - £28
+
+ - [Ceramic Tiki Mug Hemingway](https://littlegrassshack.co.uk/product/hemingway/) - £24.50
+
+ - [Ceramic Tiki Mug Cannibal – Green](https://littlegrassshack.co.uk/product/ceramic-tiki-mug-cannibal-green/) - £25
+
+
+
 
 ## £30>x<£60
 
@@ -74,9 +84,15 @@ Refer to [Rum List](/rum.md) for more extensive list for tiki drinks.
 
  - [Empress 1908](https://www.urban-drinks.co.uk/empress-1908-gin-07l-425-vol.html) - £40.90
 
+ - [Mahiki Barrel Tiki Mug](https://littlegrassshack.co.uk/product/mahiki-barrel-tiki-mug/) - £35
+
+ - [Ceramic Tiki Mug Sharer Puffa Fish – Lola Lo](https://littlegrassshack.co.uk/product/ceramic-puffa-fish-lola-lo/) - £36
+
 ## £60>x<£100
 
  - [Fortaleza Blanco](https://www.masterofmalt.com/tequila/destileria-la-fortaleza/fortaleza-blanco-tequila/) - £79
+
+ - [Ceramic Tiki Cocktail Sharer – Barrel Stack](https://littlegrassshack.co.uk/product/ceramic-tiki-cocktail-sharer-barrel-stack/) - £69
 
 ## x>£100
 
