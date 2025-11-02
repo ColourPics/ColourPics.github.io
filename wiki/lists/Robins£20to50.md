@@ -41,6 +41,8 @@
  - [Haglofs Outsiders Tee Women (any colour but brown and pink, size M)](https://www.haglofs.com/en/women/tops-women/tops-shirt-tshirts-women/outsiders-tee-women-6076642C5)
  - [Ask & Embla Odyssey Earrings (gold)](https://askandembla.net/products/odyssey-earrings)
  - [The Fluxion Regular Chest Binder-Half-Black (size L)](https://thefluxion.com/product/black-binder/)
+ - [FLOW Chest Binder CB10 (half length, white)](https://wivov.com/products/chestbinder-cb10?variant=48750328185117)
+ - [SWIM Half Chest Binder CB12 Print Edition (smile, size L)](https://wivov.com/products/swim-half-chest-binder-cb12p)
 
 # Other: 
  - [Leuchtturm1917 Notebook Master Classic (A4+, harcover, dot rulled, orange colour)](https://www.leuchtturm1917.co.uk/notebook-master-classic-a4-hardcover-235-numbered-pages-rising-sun-dotted.html)
