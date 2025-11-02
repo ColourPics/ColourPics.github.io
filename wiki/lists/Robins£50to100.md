@@ -39,4 +39,5 @@
  - [Daylight Easel Lamp Go](https://www.cassart.co.uk/Daylight-Easel-Lamp-Go/)
  - [Rotring 800](https://cultpens.com/products/rotring-800-drafting-pencil-silver)
  - [TRX resistance bands (4 pack)](https://www.trxtraining.eu/en-gb/products/strength-bands?variant=49857786347857&gad_source=1&gbraid=0AAAAADlR7VlvL0RwCUBD7Bwb8CxN1lZHB&gclid=Cj0KCQjw782_BhDjARIsABTv_JCAU_zjzFI6uqAYCbVBHI6hjNYWKNTuAyCz-NLI_yD4Bgdw-TZOFhIaAg9aEALw_wcB)
+ - [Universal Josephine N° 2 wine glass (set of 1)](https://josephinen.com/en-gb/products/josephine-2?variant=31439313174583)
  - 
