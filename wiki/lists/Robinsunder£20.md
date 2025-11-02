@@ -87,3 +87,4 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [Rico Ricorumi Glow in the Dark DK (at least 2 balls prefarably)](https://www.woolwarehouse.co.uk/yarn/rico-ricorumi-glow-in-the-dark-dk-white-001-25g)
  - [Cass Art Gridded Double Sided Self Healing Cutting Mat (A3)](https://www.cassart.co.uk/Cass-Art-Gridded-Double-Sided-Self-Healing-Cutting-Mat/)
  - [M+R Brass Sharpener](https://www.hamiltonpens.com/collections/mobius-ruppert/products/m-r-brass-pencil-sharpener-single-hole)
+ - [Seasonal calendar](https://store.steampowered.com/steamdeck)
