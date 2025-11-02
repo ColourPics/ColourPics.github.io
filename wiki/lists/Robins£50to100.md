@@ -26,12 +26,13 @@
  - [Mini Flowers Set III](https://www.wolfandmoon.com/collections/earrings/products/mini-flowers-set-iii)
     - any of the earings from Wolf & Moon listed above can be ordered as a hoop set or charms only. Only 1 set of hoops is needed and all charms fit onto the hoops. The Golf filled hoops are prefered
     - [MTE Treg guide trousers (black, size L), make sure these can be returned as trousers are hard to fit](https://www.vans.com/en-gb/p/mte-trek-guide-trousers-VN000M6XBLK?msockid=058800ba6d4063ff0c7c16c06c6762f3)
-   
-# Household
- - [Ninja ZEROSTICK 30cm Frying Pan](https://ninjakitchen.co.uk/product/ninja-zerostick-30cm-frying-pan-c30030uk-zidC30030UK)
+    - [Quarry Boxy Cotton Blouse Ecru (size M)](https://bravafabrics.com/collections/long-sleeve-blouses/products/quarry-boxy-cotton-blouse-ecru?variant=47474397512012)
+  
 
 # Other 
  - [Ospray Archeon™ Chest Rig](https://www.osprey.com/gb/osprey-archeon-chest-rig-s24?size=One+Size&colour=Black)
  - [Glass Palette](https://www.jacksonsart.com/new-wave-posh-table-top-glass-palette-16x20in-grey)
  - [Daylight Easel Lamp Go](https://www.cassart.co.uk/Daylight-Easel-Lamp-Go/)
  - [Rotring 800](https://cultpens.com/products/rotring-800-drafting-pencil-silver)
+ - [TRX resistance bands (4 pack)](https://www.trxtraining.eu/en-gb/products/strength-bands?variant=49857786347857&gad_source=1&gbraid=0AAAAADlR7VlvL0RwCUBD7Bwb8CxN1lZHB&gclid=Cj0KCQjw782_BhDjARIsABTv_JCAU_zjzFI6uqAYCbVBHI6hjNYWKNTuAyCz-NLI_yD4Bgdw-TZOFhIaAg9aEALw_wcB)
+ - 
