@@ -26,11 +26,11 @@
 
  - [Fish Slice](https://www.souschef.co.uk/products/wood-handle-stainless-steel-slotted-spatula) - £19
 
- - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat)
+ - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat) - £17.99
 
- - [Stainless Steel Dough Cutter & Scraper](https://www.souschef.co.uk/products/stainless-steel-dough-cutter-scraper)
+ - [Stainless Steel Dough Cutter & Scraper](https://www.souschef.co.uk/products/stainless-steel-dough-cutter-scraper) - £6.50
 
- - [De Buyer Flexible Rounded Scraper](https://www.souschef.co.uk/products/de-buyer-flexible-rounded-scraper)
+ - [De Buyer Flexible Rounded Scraper](https://www.souschef.co.uk/products/de-buyer-flexible-rounded-scraper) - £1.99
 
 ## £20>x<£30
 
@@ -38,11 +38,11 @@
 
  - [Cantabrian Anchovies in Butter](https://www.thetinnedfishmarket.com/products/large-cantabrian-anchovies-in-butter-14-fillets?_pos=1&_sid=a498aa882&_ss=r) - £25.95 (Yes, spensive. But literally anything else from this site would be awesome)
  
- -  [Blue wave ramen bowl](https://www.souschef.co.uk/products/blue-wave-ramen-bowl)
+ -  [Blue wave ramen bowl](https://www.souschef.co.uk/products/blue-wave-ramen-bowl) - £21.99
 
- -  [Baking tray](https://www.souschef.co.uk/products/usa-pan-large-cookie-sheet)
+ -  [Baking tray](https://www.souschef.co.uk/products/usa-pan-large-cookie-sheet) - £22.99
 
- -  [Ramen bowl, any colour, except plain black/white](https://www.mij.co.uk/products/white-star-ramen-bowl-25cm)
+ -  [Ramen bowl, any colour, except plain black/white](https://www.mij.co.uk/products/white-star-ramen-bowl-25cm) - £22
   
 
 ## £30>x<£60
@@ -57,13 +57,15 @@
 
  - [De Buyer Mineral B (24cm)](https://www.souschef.co.uk/products/de-buyer-mineral-b-frying-pan-24cm?variant=40111157936186) - £35.99
 
- - [Chefs press (13oz size)](https://www.souschef.co.uk/products/the-chefs-press-8oz?variant=39844164173882)
+ - [Chefs press (13oz size)](https://www.souschef.co.uk/products/the-chefs-press-8oz?variant=39844164173882) - £35
 
 ## £60>x<£100
 
  - [Anova Vacuum Sealer](https://www.souschef.co.uk/products/anova-sous-vide-vacuum-sealer) - £79.99
 
  - [Yakumi Pans #00](https://knivesforchefs.co.uk/collections/yakumi-pans/products/00-small-8pc-long) - £70
+
+ - [LSA Wine Culture Champagne Saucer 320ml](https://www.lsa-international.com/drinkware/wine-culture-champagne-saucer) - £100
 
 ## x>£100
 
