@@ -72,4 +72,8 @@
  - [End grain chopping board](https://www.hardwoodchoppingboards.co.uk/product/oak-end-grain-chopping-board-14/) - £135
 
  - [Kitchenaid](https://www.ebay.co.uk/sch/i.html?_nkw=kitchenaid+pro&_sacat=0&_from=R40&rt=nc&LH_ItemCondition=3000) - Used price hovers around £270 (Please god don't buy a new one)
+
+ - [Normandie poster (black stained ash, no mount)](https://www.kingandmcgaw.com/prints/am-cassandre/normandie-471632#471632::frame:880611_glass:770006_media:0)
+
+ - [Old Shipping Lanes World Map, 1873 by Berghaus (178x112cm, unframed)](https://uniquemaps.co.uk/collections/world-maps/products/old-shipping-lanes-world-map-1873-by-berghaus-giant-atlas-chart-sea-transport-railroads-harbours-steamers-303999520?variant=42713854017766) - £460
  
