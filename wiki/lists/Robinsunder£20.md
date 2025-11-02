@@ -7,7 +7,7 @@
  - [inkey list hyaluronic acid cleanser](https://uk.theinkeylist.com/products/hyaluronic-acid-cleanser)
  - [Bioderma Sensibio H2O Micellar Water](https://www.sainsburys.co.uk/gol-ui/product/bioderma-sensibio-h2o-the-original-micellar-water-500ml)
  
-### Makeup brushes:
+# Makeup brushes:
  - [EB1 Blending Brush - Glisten Cosmetics](https://www.glistencosmetics.com/products/eb1-blending-brush-glisten-cosmetics)
  - [ES1 Smudger Brush - Glisten Cosmetics](https://www.glistencosmetics.com/products/es1-smudger-brush-glisten-cosmetics)
  - [Blending Brush B1](https://www.glistencosmetics.com/products/blending-brush-b1-glisten-cosmetics)
@@ -75,6 +75,8 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [Happy socks (any but keep it fun)](https://www.happysocks.com/uk/adults?size=-36-40&length=ankle,1-4-crew,1-2-crew,crew)
  - [Silver star studs](https://cheerings.co.uk/products/silver-star-stud-earrings)
  - [Ghost charm earrings (irridecent)](https://www.tattydevine.com/products/ghost-charm-earrings?variant=41612873334832)
+ - [Black Cats Crew Socks-Trans](https://thefluxion.com/product/black-cats-crew-socks-trans/)
+ - [Black Cats Crew Socks-Pride](https://thefluxion.com/product/black-cats-crew-socks-pride/)
 
 # Other 
  - [Michael Harding Refined Poppy Oil 100ml](https://www.cassart.co.uk/michael-harding-refined-poppy-oil-100ml--c/)
