@@ -75,5 +75,7 @@
 
  - [Normandie poster (black stained ash, no mount)](https://www.kingandmcgaw.com/prints/am-cassandre/normandie-471632#471632::frame:880611_glass:770006_media:0)
 
+ - [Hestan ProBond® Luxe Induction Stainless Steel Skillet  (28cm)](https://hestanculinary.co/collections/probond-luxe/products/hestan-probond-luxe-stainless-steel-induction-skillets-22cm-28cm-32cm?variant=55320698814841)
+
  - [Old Shipping Lanes World Map, 1873 by Berghaus (178x112cm, unframed)](https://uniquemaps.co.uk/collections/world-maps/products/old-shipping-lanes-world-map-1873-by-berghaus-giant-atlas-chart-sea-transport-railroads-harbours-steamers-303999520?variant=42713854017766) - £460
  
