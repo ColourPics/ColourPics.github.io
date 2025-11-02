@@ -33,6 +33,7 @@
  - [Tea taster bundle (nothing minty otherwise go crazy)](https://www.birdandblendtea.com/products/build-your-own-tea-tasting-pack/5-tea-set)
  - [Vault City Orange Creamsicle](https://vaultcity.co.uk/products/orange-creamsicle-copy)
  - [Fancy marshmallows (any of the cube ones in a fun flavour)](https://themarshmallow.co/collections/all)
+ - [Lyme Bay Bacchus 2023](https://www.vinvm.co.uk/lyme-bay-bacchus-2023)
    
 
 # Books: 
