@@ -68,7 +68,8 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [PF 300 Flow energy Gel (1 pouch)](https://www.precisionhydration.com/products/pf-300-flow-gel/)
  - [High5 Energy Gel Refill (any flavour)](https://highfive.co.uk/products/refill-energy-gel?variant=44180193280250)
  - [Injinji Socks (XS/S)](https://www.ultramarathonrunningstore.com/Injinji-Artist-Designed-Trail-Socks-Crew-p/injinjiartistwc.htm?gad_campaignid=208745366)
- - [Sport Tape Kenesiology Tape](https://sporttape.co.uk/products/kinesiology-tape?variant=50228041187644)
+ -  - [Injinji Trail Socks : Crew (any fun colour, size S)](https://www.ultramarathonrunningstore.com/Injinji-Trail-Socks-Crew-p/injinji2trailc.htm)
+ - [Sport Tape Kenesiology Tape (pack of 3 5cmx5m in a fun colour/pattern](https://sporttape.co.uk/products/kinesiology-tape?variant=50228041187644)
  - [Megababe Anti-Chafe stick](https://www.boots.com/megababe-thigh-rescue-anti-friction-stick-60g-10342766?traffic=paid.shopping&gad_campaignid=21096115648)
 
 # Clothes and jewlery
