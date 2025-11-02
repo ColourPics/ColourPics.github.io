@@ -35,6 +35,8 @@
  -  [Blue wave ramen bowl](https://www.souschef.co.uk/products/blue-wave-ramen-bowl)
 
  -  [Baking tray](https://www.souschef.co.uk/products/usa-pan-large-cookie-sheet)
+
+ -  [Ramen bowl, any colour, except plain black/white](https://www.mij.co.uk/products/white-star-ramen-bowl-25cm)
   
 
 ## £30>x<£60
