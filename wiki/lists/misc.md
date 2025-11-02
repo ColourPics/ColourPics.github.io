@@ -25,7 +25,7 @@
 
  - [Aer Slim Pouch](https://aersf.co.uk/products/slim-pouch-1?country=GB) - £33.15
 
- - [2Pood Lifting Belt (S)](https://2pood.co.uk/products/showstopper-4-weightlifting-belt?variant=51139115450680) - £53.99
+ - [Schiek 2004 (S)](https://schiek.com/collections/belts/products/model-2004-bestweightliftingbelt?variant=45234873860392) - £47
 
 ## £60>x<£100
 
