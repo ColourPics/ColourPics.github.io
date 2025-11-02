@@ -16,7 +16,7 @@
 
 
 # Clothes and Jewlery:
- - [Haglofs L.I.M GTX II jacket (colours: Aurora, desert yellow or Mint Stone in size M)](https://www.haglofs.com/en/women/tops-women/tops-jackets-women/lim-gtx-ii-jacket-women-6074184T9?variantId=7318841793092)
+ - [Motus Studio Mid Leather Womens (black, size 6)](https://www.vivobarefoot.com/uk/motus-studio-mid-leather-womens?colour=Limestone)
 
 
 # Other 
