@@ -57,6 +57,7 @@
  - [Captains of Crush hand grippers (60lbs if buying one)](https://www.strengthshop.co.uk/products/captains-of-crush-hand-grippers)
  - [7” DIY Shears](https://www.whiteley.co.uk/product/7-diy-shears/)
  - [Non-binary flag (Applique sewn, 3ft x 2ft, headband & 2 eyelets, no fray netting)](https://www.flyingcolours.org/nonbinary-pride-flag/)
+ - [Classic Silver Slip Chain](https://shopluneprint.com/products/classic-silver-slip-chain)
 
    
 
