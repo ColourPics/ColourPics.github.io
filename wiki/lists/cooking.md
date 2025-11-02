@@ -26,6 +26,12 @@
 
  - [Fish Slice](https://www.souschef.co.uk/products/wood-handle-stainless-steel-slotted-spatula) - £19
 
+ - [Silicone Baking Mat](https://www.souschef.co.uk/products/silikomart-silicone-baking-mat)
+
+ - [Stainless Steel Dough Cutter & Scraper](https://www.souschef.co.uk/products/stainless-steel-dough-cutter-scraper)
+
+ - [De Buyer Flexible Rounded Scraper](https://www.souschef.co.uk/products/de-buyer-flexible-rounded-scraper)
+
 ## £20>x<£30
 
  - [Splatter Enamel Roasting Pan (26cm)](https://www.souschef.co.uk/products/splatter-fest-enamel-roasting-and-serving-dish-yellow-21cm?variant=39400465727546) - £26.99
@@ -64,5 +70,4 @@
  - [End grain chopping board](https://www.hardwoodchoppingboards.co.uk/product/oak-end-grain-chopping-board-14/) - £135
 
  - [Kitchenaid](https://www.ebay.co.uk/sch/i.html?_nkw=kitchenaid+pro&_sacat=0&_from=R40&rt=nc&LH_ItemCondition=3000) - Used price hovers around £270 (Please god don't buy a new one)
- 
  
