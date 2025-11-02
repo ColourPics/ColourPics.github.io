@@ -56,6 +56,7 @@
  - [Kaweco Sketch Up Pencil](https://cultpens.com/products/kaweco-sketch-up-pencil-matt-black-5-6mm?variant=43642551697651&gad_campaignid=20557170237)
  - [Captains of Crush hand grippers (60lbs if buying one)](https://www.strengthshop.co.uk/products/captains-of-crush-hand-grippers)
  - [7” DIY Shears](https://www.whiteley.co.uk/product/7-diy-shears/)
+ - [Non-binary flag (Applique sewn, 3ft x 2ft, headband & 2 eyelets, no fray netting)](https://www.flyingcolours.org/nonbinary-pride-flag/)
 
    
 
