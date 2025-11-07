@@ -19,7 +19,6 @@
 
 ## £20>x<£30
 
- - [Team Industry Figure 8 straps (regular)](https://teamindustry.co.uk/products/industry-figure-8-lifting-straps) - £22
 
 ## £30>x<£60
 
