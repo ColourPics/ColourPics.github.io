@@ -3,7 +3,9 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
- - The Future of Another Timeline - Annalee Newitz
+ - Vita Nostra - Marina and Sergey Dyachenko
+ - The Magus - John Fowles
+ - Hunger - Choi Jin-Young
  - Project Hail Mary - Andy Weir
  - Rosewater - Tade Thompson
  - Newjack - Ted Conover
@@ -18,8 +20,6 @@ List format is [Title] - [Author]
  - The Tokyo-Montanna Express - Richard Brautigan
  - The Fisherman - John Langan
  - Piranesi - Susanna Clarke
- - The Fifth Season - N.K. Jemisin
- - The Tainted Cup - Robert JAckson Bennett
  - Moon of the Crusted Snow - Waubgeshig Rice
  - The Book - Hungry Minds
  - Silver in the Wood - Emily Tesh
@@ -28,7 +28,6 @@ List format is [Title] - [Author]
  - Jack Glass - Adam Roberts
  - Who Fears Death - Nnedi Okorafor
  - XX - Rian Hughes
- - The Raw Shark Texts - Steven Hall
  - The Castle of Crossed Destinies - Italo Calvino
  - If on a Winters Night a Traveller - Italo Calvino
  - Pale Fire - Vladimir Nabokov
@@ -48,24 +47,17 @@ List format is [Title] - [Author]
  - What Should Be Wild - Julia Fine
  - Siren Queen - Nghi Vo
  - Corker - Hannah Crosbie
- - A World Running Down - Al Hess
  - Our Wives Under The Sea - Julia Armfield
  - To Sleep in a Sea of Stars - Christopher Paolini
- - Fish Swimming in Dappled Sunlight - Riku Onda
  - Wild Seed - Octavia E. Butler
  - A Psalm for the Wild Built - Becky Chambers
- - The Phsycology of Time Travel - Kate Mascarenhas
- - In the Full Light of the Sun - Clare Clark
- - The Madwoman Upstairs - Catherine Lowell
- - Do You Dream of Terra-Two? - Temi Oh
- - Station Eleven - Emily St. John Mandel
  - The City We Became - N.K. Jemisin
  - An Unkindness of Ghosts - Rivers Solomon
  - The Book of Elsewhere - Cina Mieville & Keanu Reeves
  - Hermetica - Alan Lea
  - House of Leaves - Mark Z. Danielewski
  - The Sting of Victory - S.D. Simper
- - Lord'd Dome - E.D.E Bell
+ - Lord's Dome - E.D.E Bell
  - Godly Heathens - H. E. Edgman
  - The Man-Butcher Prize - Charles X. Cross
  - Ammonite - Nicola Griffith
@@ -79,3 +71,4 @@ List format is [Title] - [Author]
  - All Systems Red - Martha Wells
  - Dark Matter - Blake Crouch
  - After Atlas - Emma Newman
+
