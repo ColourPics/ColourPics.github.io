@@ -3,6 +3,36 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
+ - On Bullshit - Harry G. Frankfurt
+ - And Then I Woke Up - Malcolm Devlin
+ - Square Eyes - Luke Jones & Anna Mill
+ - Flatlands - Sue Hubbard
+ - Children of the New World - Alexander Weinstein
+ - Replaceable You - Mary Roach
+ - When the Cranes Fly South - Lisa Ridzen & Alice Menzies
+ - Whale Fall - Elizabeth O'Connor
+ - Endling - Maria Reva
+ - Love Forms - Claire Adam
+ - Autition - Katie Kitamura
+ - The South - Tash Aw
+ - Africa is not a Country - Dipo Faloyin
+ - The Immortal Life of Henrietta Lacks - Rebecca Skloot
+ - Girl, Interrupted - Susanna Kaysen
+ - Psycho - Robert Bloch
+ - Homegoing - Yaa Gyasi
+ - Sandwich - Catherine Newman
+ - Giovanni's Room - James Baldwin
+ - The Fire Next Time - James Baldwin
+ - I Who Have Never Known Men - Jacqueline Harpman
+ - The Nickel Boys - Colson Whitehead
+ - Ducks - Kate Beaton
+ - The Tiger - John Vaillant
+ - The Lonely Londoners - Sam Selvon
+ - Forgive Me, Leonard Peacock - Matthew Quick
+ - There There - Tommy Orange
+ - The Exorcist - William Peter Blatty
+ - The Haunting of Hill House - Shirley Jackson
+ - The Lst House on Needless Street - Catriana Ward
  - Vita Nostra - Marina and Sergey Dyachenko
  - The Magus - John Fowles
  - Hunger - Choi Jin-Young
