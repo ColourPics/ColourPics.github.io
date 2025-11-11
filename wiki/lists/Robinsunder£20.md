@@ -36,7 +36,9 @@
  - [Fancy marshmallows (any of the cube ones in a fun flavour)](https://themarshmallow.co/collections/all)
  - [Lyme Bay Bacchus 2023](https://www.vinvm.co.uk/lyme-bay-bacchus-2023)
  - [Hotel Chocolate hot choclate sachets (any flavour apart from mint or chilli)](https://www.hotelchocolat.com/uk/shop/collections/products/drinking-chocolate/hot-chocolate/)
-   
+ - [Shoyu Ramen Soup Base, 1 litre](https://www.souschef.co.uk/products/shoyu-ramen-soup-base)
+ - [Bevertown Core craft beer bundle](https://beavertownbrewery.co.uk/products/beavertown-core-craft-beer-bundle?variant=47322462322987)
+ - [Bevertown Case of Summer Beers](https://beavertownbrewery.co.uk/products/beavertown-case-of-summer-beers)
 
 # Books: 
 New or used, no preffarance really but links provided offer both options, feel free to order from elsewhere anyway
@@ -94,6 +96,8 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [Winson & Newton blanding medium](https://uk.winsornewton.com/collections/watercolour-mediums/products/watercolour-medium-blending-medium)
  - [Winson & Newton ox gall liquid](https://uk.winsornewton.com/collections/watercolour-mediums/products/watercolour-medium-ox-gall-liquid)
 
-# Other than 
+# Other 
  - [Rico Ricorumi Glow in the Dark DK (at least 2 balls prefarably)](https://www.woolwarehouse.co.uk/yarn/rico-ricorumi-glow-in-the-dark-dk-white-001-25g)
  - [Seasonal calendar](https://store.steampowered.com/steamdeck)
+ - [The Granny Square Card Deck](https://thewoollybrew.co.uk/collections/crochet/products/the-granny-square-card-deck)
+ - [The Granny Square Flowers Card Deck](https://thewoollybrew.co.uk/collections/crochet/products/the-granny-square-flowers-card-deck)
