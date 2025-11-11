@@ -81,13 +81,17 @@ New or used, no preffarance really but links provided offer both options, feel f
  - [Black Cats Crew Socks-Trans](https://thefluxion.com/product/black-cats-crew-socks-trans/)
  - [Black Cats Crew Socks-Pride](https://thefluxion.com/product/black-cats-crew-socks-pride/)
 
-# Other 
+# Art Materials
  - [Michael Harding Refined Poppy Oil 100ml](https://www.cassart.co.uk/michael-harding-refined-poppy-oil-100ml--c/)
  - [Zest It Safe Oil Paint Dilutant And Brush Cleaner (500ml size)](https://www.cassart.co.uk/zest-it-safe-oil-paint-dilutant-and-brush-cleaner/)
  - [Michael Harding Beeswax Paste (100ml)](https://www.cassart.co.uk/michael-harding-beeswax-paste/)
  - [Swann-Morton Surgical Scalpel Blade No.11 (multipe packs would be ideal)](https://www.cassart.co.uk/swann-morton-surgical-scalpel-blade-no.11-pack-of-5--c/)
  - [Sennelier Extra Fine Oil Stick 12ml](https://www.cassart.co.uk/sennelier-extra-fine-oil-stick-12ml-apple-still-life-set-of-6/)
- - [Rico Ricorumi Glow in the Dark DK (at least 2 balls prefarably)](https://www.woolwarehouse.co.uk/yarn/rico-ricorumi-glow-in-the-dark-dk-white-001-25g)
  - [Cass Art Gridded Double Sided Self Healing Cutting Mat (A3)](https://www.cassart.co.uk/Cass-Art-Gridded-Double-Sided-Self-Healing-Cutting-Mat/)
  - [M+R Brass Sharpener](https://www.hamiltonpens.com/collections/mobius-ruppert/products/m-r-brass-pencil-sharpener-single-hole)
+ - [Winson & Newton blanding medium](https://uk.winsornewton.com/collections/watercolour-mediums/products/watercolour-medium-blending-medium)
+ - [Winson & Newton ox gall liquid](https://uk.winsornewton.com/collections/watercolour-mediums/products/watercolour-medium-ox-gall-liquid)
+
+# Other than 
+ - [Rico Ricorumi Glow in the Dark DK (at least 2 balls prefarably)](https://www.woolwarehouse.co.uk/yarn/rico-ricorumi-glow-in-the-dark-dk-white-001-25g)
  - [Seasonal calendar](https://store.steampowered.com/steamdeck)
