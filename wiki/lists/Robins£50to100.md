@@ -32,6 +32,7 @@
     - [Lauterbrunnen Baselayer (size M)](https://hacksawstella.bigcartel.com/product/lauterbrunnen-baselayer)
     - [Arc'Teryx Soria Tank Women's (size M, Black)](https://arcteryx.com/gb/en/shop/womens/soria-tank)
     - [Arc'Teryx Lana Merino Wool Tank Women's (size M, Moonstone)](https://arcteryx.com/gb/en/shop/womens/lana-merino-wool-tank-9496)
+    - [Passenger Women's Hydrilla Organic Cotton Trouser (size M, Pistachio or Black),  make sure these can be returned as trousers are hard to fit](https://www.passenger-clothing.com/products/hydrilla-organic-cotton-trouser-black-8709)
 
 # Art Materials
  - [Schmincke Horadam Gouache Set](https://www.cassart.co.uk/Schmincke-Horadam-Gouache-in-Metal-Tin-15ml-Assorted-Colours-Set-of-10/)
