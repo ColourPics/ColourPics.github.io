@@ -62,6 +62,9 @@
  - [Non-binary flag (Applique sewn, 3ft x 2ft, headband & 2 eyelets, no fray netting)](https://www.flyingcolours.org/nonbinary-pride-flag/)
  - [Classic Silver Slip Chain](https://shopluneprint.com/products/classic-silver-slip-chain)
  - [RWC 2025 Replica Ball (size 5)](https://www.gilbertrugby.com/products/rwc-2025-replica-ball)
+ - [ONO signets (8 pack, emerald or lavender)](https://getono.com/products/signets-set?variant=45936052207843)
+ - [ONO Scroller Steel fidget toy](https://getono.com/products/scroller-ss)
+
 
    
 
