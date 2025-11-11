@@ -34,6 +34,7 @@
  - [Vault City Orange Creamsicle](https://vaultcity.co.uk/products/orange-creamsicle-copy)
  - [Fancy marshmallows (any of the cube ones in a fun flavour)](https://themarshmallow.co/collections/all)
  - [Lyme Bay Bacchus 2023](https://www.vinvm.co.uk/lyme-bay-bacchus-2023)
+ - [Hotel Chocolate hot choclate sachets (any flavour apart from mint or chilli)](https://www.hotelchocolat.com/uk/shop/collections/products/drinking-chocolate/hot-chocolate/)
    
 
 # Books: 
