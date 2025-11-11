@@ -30,6 +30,8 @@
     - [Hoka race day bra (Black/black size M)](https://www.hoka.com/en/gb/women-tops/race-day-bra/1166630.html?dwvar_1166630_color=HKB)
     - [peak performance graphic Tee (size M, Sand fog)](https://www.peakperformance.com/gb/product/w-graphic-tee-g80963.html?color=82321)
     - [Lauterbrunnen Baselayer (size M)](https://hacksawstella.bigcartel.com/product/lauterbrunnen-baselayer)
+    - [Arc'Teryx Soria Tank Women's (size M, Black)](https://arcteryx.com/gb/en/shop/womens/soria-tank)
+    - [Arc'Teryx Lana Merino Wool Tank Women's (size M, Moonstone)](https://arcteryx.com/gb/en/shop/womens/lana-merino-wool-tank-9496)
 
 # Art Materials
  - [Schmincke Horadam Gouache Set](https://www.cassart.co.uk/Schmincke-Horadam-Gouache-in-Metal-Tin-15ml-Assorted-Colours-Set-of-10/)
@@ -42,3 +44,4 @@
  - [TRX resistance bands (4 pack)](https://www.trxtraining.eu/en-gb/products/strength-bands?variant=49857786347857&gad_source=1&gbraid=0AAAAADlR7VlvL0RwCUBD7Bwb8CxN1lZHB&gclid=Cj0KCQjw782_BhDjARIsABTv_JCAU_zjzFI6uqAYCbVBHI6hjNYWKNTuAyCz-NLI_yD4Bgdw-TZOFhIaAg9aEALw_wcB)
  - [Universal Josephine N° 2 wine glass (set of 1)](https://josephinen.com/en-gb/products/josephine-2?variant=31439313174583)
  - [Lijiang Ancient Town Book Nook Kit](https://byanavrin.com/en-gb/products/lijiang-ancient-town-book-nook-kit)
+ - [Cotopaxi Todo 8L Sling - Del Día](https://uk.cotopaxi.com/collections/crossbody-slings/products/todo-8l-sling-del-dia)
