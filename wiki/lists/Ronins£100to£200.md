@@ -27,3 +27,5 @@
  - [Pride flag (traditonal applique, 2 yard, Headband & 2 eyelets, no fray netting)](https://www.flyingcolours.org/progress-pride-intersex-flag/)
  - [Muud leather project bag (any style)](https://muudstore.com/collections/shop)
  - [Decanter Josephine N° 7](https://josephinen.com/en-gb/products/josephine-wine-decanter-brilliant)
+ - [Soulmate 2.0 Touch Necklaces (stainless steel chains)](https://totwoo.com/en-gb/products/soulmate-2-0-touch-necklaces?variant=48505327878377)
+
