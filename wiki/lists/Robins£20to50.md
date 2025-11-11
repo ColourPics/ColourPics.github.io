@@ -44,22 +44,23 @@
  - [FLOW Chest Binder CB10 (half length, white)](https://wivov.com/products/chestbinder-cb10?variant=48750328185117)
  - [SWIM Half Chest Binder CB12 Print Edition (smile, size L)](https://wivov.com/products/swim-half-chest-binder-cb12p)
 
+# Art Materials
+ - [TubeWringer 205 Medium Duty Tube Squeezer](https://www.jacksonsart.com/tubewringer-205-medium-duty-tube-squeezer)
+ - [RGM Wooden Palette Knife Pack of 6](https://www.cassart.co.uk/rgm-wooden-palette-knife-pack-of-6--c/)
+ - [Winsor & Newton Workstation A3 Ebro Table Easel](https://www.cassart.co.uk/workstation-a3-ebro-table-easel-a3--c/)
+ - [Kaweco Sketch Up Pencil](https://cultpens.com/products/kaweco-sketch-up-pencil-matt-black-5-6mm?variant=43642551697651&gad_campaignid=20557170237)
+   
 # Other: 
  - [Leuchtturm1917 Notebook Master Classic (A4+, harcover, dot rulled, orange colour)](https://www.leuchtturm1917.co.uk/notebook-master-classic-a4-hardcover-235-numbered-pages-rising-sun-dotted.html)
  - [Leuchtturm1917 Sketchbook (Medium landscape, port red colur)](https://www.leuchtturm1917.co.uk/sketchbook-landscape-a5-hardcover-112-pages-150-gsqm-plain-port-red.html)
  - [Saniderm Flex Tattoo Bandage Roll](https://saniderm.co.uk/products/flex-tattoo-bandage-roll-personal-10-in-x-2-yd)
- - [TubeWringer 205 Medium Duty Tube Squeezer](https://www.jacksonsart.com/tubewringer-205-medium-duty-tube-squeezer)
- - [Road to Infamy Games - Canvas Board Game](https://www.amazon.co.uk/Road-Infamy-Games-Players-Playing/dp/B08VH7ZB9V)
- - [Windsor and Newton oil paint (titanium white, 200ml)](https://www.cassart.co.uk/winsor-newton-artists-oil-colour/)
- - [RGM Wooden Palette Knife Pack of 6](https://www.cassart.co.uk/rgm-wooden-palette-knife-pack-of-6--c/)
- - [Winsor & Newton Workstation A3 Ebro Table Easel](https://www.cassart.co.uk/workstation-a3-ebro-table-easel-a3--c/)
  - [Mini Sardine tin embroidery kit](https://stitchedupkits.com/products/mini-sardines-tin)
  - [Benro KolaPod](https://www.wexphotovideo.com/benro-koalapod-3-legs-3119377/?sv_campaign_id=103504&sv_tax1=affiliate&sv_tax3=Future+Publishing.&sv_tax4=0&sv_affiliate_id=103504&awc=2298_1755288541_de2340e4552ec9ec18c880cb000bbdad&utm_source=aw)
- - [Kaweco Sketch Up Pencil](https://cultpens.com/products/kaweco-sketch-up-pencil-matt-black-5-6mm?variant=43642551697651&gad_campaignid=20557170237)
  - [Captains of Crush hand grippers (60lbs if buying one)](https://www.strengthshop.co.uk/products/captains-of-crush-hand-grippers)
  - [7” DIY Shears](https://www.whiteley.co.uk/product/7-diy-shears/)
  - [Non-binary flag (Applique sewn, 3ft x 2ft, headband & 2 eyelets, no fray netting)](https://www.flyingcolours.org/nonbinary-pride-flag/)
  - [Classic Silver Slip Chain](https://shopluneprint.com/products/classic-silver-slip-chain)
+ - [RWC 2025 Replica Ball (size 5)](https://www.gilbertrugby.com/products/rwc-2025-replica-ball)
 
    
 
