@@ -49,3 +49,4 @@
  - [Lantern Moon Bequest Tunisian Crochet Set](https://lindehobby.co.uk/lantern-moon-2103/lantern-moon-bequest-tunisian-crochet-set-p7572?gad_source=1&gad_campaignid=22319098221&gbraid=0AAAAAC9abxxP6YDJ9gjw4UeDup-LzGXz7&gclid=Cj0KCQjwn8XFBhCxARIsAMyH8BsDP4080EsDr2qMlaOMOEI9UdDb0MzI5VephgC7MGR-g-roUgWJ61gaAohpEALw_wcB)
  - [ONO Roller Steel fidget toy (mini)](https://getono.com/products/ono-roller-steel?variant=45991017808099)
  - [ONO Slider Steel fidget toy](https://getono.com/products/ono-slider-steel)
+ - [Ploov heated pillow (any size, original, mid blue, standard or plus (dependent on budget)](https://uk.stoov.com/products/ploov-45x45-original-uk?variant=56211851280765)
