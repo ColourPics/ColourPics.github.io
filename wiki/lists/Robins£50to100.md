@@ -1,8 +1,6 @@
 # Makeup:
  - [CurrentBody Skin LED Illuminated Mirror](https://www.currentbody.com/products/currentbody-skin-led-illuminated-mirror)
 
-# Food, Drinks and related:
-
 # Running/Hiking:
  - [Squeeze Water Filtration System](https://ultralightoutdoorgear.co.uk/squeeze-water-filtration-system/)
  - [Lululemon The Mat 5mm (pink haze colour)](https://www.lululemon.co.uk/en-gb/p/the-mat-5mm-made-with-fsc%E2%84%A2-certified-rubber/prod10990033.html?dwvar_prod10990033_color=71792)
@@ -33,10 +31,13 @@
     - [peak performance graphic Tee (size M, Sand fog)](https://www.peakperformance.com/gb/product/w-graphic-tee-g80963.html?color=82321)
     - [Lauterbrunnen Baselayer (size M)](https://hacksawstella.bigcartel.com/product/lauterbrunnen-baselayer)
 
-# Other 
- - [Ospray Archeon™ Chest Rig](https://www.osprey.com/gb/osprey-archeon-chest-rig-s24?size=One+Size&colour=Black)
+# Art Materials
+ - [Schmincke Horadam Gouache Set](https://www.cassart.co.uk/Schmincke-Horadam-Gouache-in-Metal-Tin-15ml-Assorted-Colours-Set-of-10/)
  - [Glass Palette](https://www.jacksonsart.com/new-wave-posh-table-top-glass-palette-16x20in-grey)
  - [Daylight Easel Lamp Go](https://www.cassart.co.uk/Daylight-Easel-Lamp-Go/)
+   
+# Other 
+ - [Ospray Archeon™ Chest Rig](https://www.osprey.com/gb/osprey-archeon-chest-rig-s24?size=One+Size&colour=Black)
  - [Rotring 800](https://cultpens.com/products/rotring-800-drafting-pencil-silver)
  - [TRX resistance bands (4 pack)](https://www.trxtraining.eu/en-gb/products/strength-bands?variant=49857786347857&gad_source=1&gbraid=0AAAAADlR7VlvL0RwCUBD7Bwb8CxN1lZHB&gclid=Cj0KCQjw782_BhDjARIsABTv_JCAU_zjzFI6uqAYCbVBHI6hjNYWKNTuAyCz-NLI_yD4Bgdw-TZOFhIaAg9aEALw_wcB)
  - [Universal Josephine N° 2 wine glass (set of 1)](https://josephinen.com/en-gb/products/josephine-2?variant=31439313174583)
