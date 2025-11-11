@@ -45,6 +45,7 @@
  - [The Fluxion Regular Chest Binder-Half-Black (size L)](https://thefluxion.com/product/black-binder/)
  - [FLOW Chest Binder CB10 (half length, white)](https://wivov.com/products/chestbinder-cb10?variant=48750328185117)
  - [SWIM Half Chest Binder CB12 Print Edition (smile, size L)](https://wivov.com/products/swim-half-chest-binder-cb12p)
+ - [Canterbury Women's Advantage Shorts 2.0 Black (size 12), make sure can be returned as sizing is hard](https://www.rugbystuff.com/products/canterbury-womens-advantage-shorts-2-0-black)
 
 # Art Materials
  - [TubeWringer 205 Medium Duty Tube Squeezer](https://www.jacksonsart.com/tubewringer-205-medium-duty-tube-squeezer)
@@ -66,6 +67,7 @@
  - [ONO signets (8 pack, emerald or lavender)](https://getono.com/products/signets-set?variant=45936052207843)
  - [ONO Scroller Steel fidget toy](https://getono.com/products/scroller-ss)
  - [The Starry Night by Van Gogh cross stitch kit](https://www.dmc.com/GB/en-GB/products/the-starry-night-advanced-cross-stitch-bookmark-kit?taxon_id=20)
+ - [Hightide Penco Brown Bag Pen Pot](https://www.thejournalshop.com/collections/pen-pots/products/hightide-penco-brown-bag-pen-pot)
 
 
    
