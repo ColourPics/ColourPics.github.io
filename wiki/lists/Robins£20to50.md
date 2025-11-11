@@ -21,6 +21,7 @@
  - [Bird & Blend Cold Brew Tea Bottle (sunrise orange colour)](https://www.birdandblendtea.com/products/cold-brew-tea-bottle?variant=44948593213601)
  - [Simith & Cross rum](https://www.thewhiskyexchange.com/p/14671/smith-cross-rum)
  - [Oatnog](https://blacklinesdrinks.com/products/oatnogbottledcocktail)
+ - [Patron XO Cafe Coffee Liqueur (70cl)](https://www.thewhiskyexchange.com/p/14037/patron-xo-cafe-coffee-liqueur?suggested=true&source=productpage&type=brand&sourceProductId=12779)
 
 # Running/Hiking:
  - [Sea to Summit Aeros Down Pillow](https://ultralightoutdoorgear.co.uk/aeros-down-pillow/)
