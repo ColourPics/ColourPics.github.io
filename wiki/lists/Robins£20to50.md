@@ -9,6 +9,7 @@
  -  [Makeup Brush set 2](https://www.lookfantastic.com/p/sigma-basic-eyes-kit/11234813/)
  -  [Flat Lay Makeup Box Bag - Green Leaves Embroidered Velvet](https://theflatlayco.com/products/flat-lay-makeup-box-bag-green-leaves-embroidered-velvet)
  -  [https://theflatlayco.com/products/flat-lay-makeup-box-bag-green-leaves-embroidered-velvet](https://theflatlayco.com/products/standing-makeup-brush-case-green-leaves-embroidered-velvet)
+ -  [The Garden of Stars: Eye & Face Palette](https://www.glistencosmetics.com/products/ellis-atlantis-the-garden-of-stars-palette-blend-bunny-cosmetics?utm_source=Klaviyo&utm_medium=flow&utm_campaign=Back+in+Stock%3A+Email+%231&utm_klaviyo_id=01JXW92WDERGQ06HFGGK1W86RK&_kx=Rx4BaKdjwp_wfwmvl8XyCDf_NpJdU_IVwz8AU7g-8SE.RAhGb2)
 
 # Food, Drinks and related:
  - [yFood meal powder (hazelnut, cookie, peanut or coffee flavour)](https://uk.yfood.com/collections/powder?view=bundle)
@@ -64,6 +65,7 @@
  - [RWC 2025 Replica Ball (size 5)](https://www.gilbertrugby.com/products/rwc-2025-replica-ball)
  - [ONO signets (8 pack, emerald or lavender)](https://getono.com/products/signets-set?variant=45936052207843)
  - [ONO Scroller Steel fidget toy](https://getono.com/products/scroller-ss)
+ - [The Starry Night by Van Gogh cross stitch kit](https://www.dmc.com/GB/en-GB/products/the-starry-night-advanced-cross-stitch-bookmark-kit?taxon_id=20)
 
 
    
