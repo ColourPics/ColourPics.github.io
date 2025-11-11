@@ -18,6 +18,7 @@
 # Clothes and Jewlery:
  - [Motus Studio Mid Leather Womens (black, size 6)](https://www.vivobarefoot.com/uk/motus-studio-mid-leather-womens?colour=Limestone)
  - [Arc'Teryx Delta Crew Neck Pullover Women's (size M, soulsonic/black)](https://arcteryx.com/gb/en/shop/womens/delta-crew-neck-pullover)
+ - [Patagonia Women's Terravia Peak Pants (regular, size 12, black)](https://eu.patagonia.com/gb/en/product/womens-terravia-peak-trail-pants-regular/196924406964.html)
 
 
 # Other 
