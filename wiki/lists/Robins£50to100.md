@@ -47,3 +47,5 @@
  - [Lijiang Ancient Town Book Nook Kit](https://byanavrin.com/en-gb/products/lijiang-ancient-town-book-nook-kit)
  - [Cotopaxi Todo 8L Sling - Del Día](https://uk.cotopaxi.com/collections/crossbody-slings/products/todo-8l-sling-del-dia)
  - [Lantern Moon Bequest Tunisian Crochet Set](https://lindehobby.co.uk/lantern-moon-2103/lantern-moon-bequest-tunisian-crochet-set-p7572?gad_source=1&gad_campaignid=22319098221&gbraid=0AAAAAC9abxxP6YDJ9gjw4UeDup-LzGXz7&gclid=Cj0KCQjwn8XFBhCxARIsAMyH8BsDP4080EsDr2qMlaOMOEI9UdDb0MzI5VephgC7MGR-g-roUgWJ61gaAohpEALw_wcB)
+ - [ONO Roller Steel fidget toy (mini)](https://getono.com/products/ono-roller-steel?variant=45991017808099)
+ - [ONO Slider Steel fidget toy](https://getono.com/products/ono-slider-steel)
