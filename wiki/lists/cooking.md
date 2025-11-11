@@ -59,6 +59,8 @@
 
  - [Chefs press (13oz size)](https://www.souschef.co.uk/products/the-chefs-press-8oz?variant=39844164173882) - £35
 
+ - [Messermeister Maintenance Whetstone, 1000 & 3000 Grit](https://www.souschef.co.uk/products/messermeister-maintenance-whetstone) - £59.99
+
 ## £60>x<£100
 
  - [Anova Vacuum Sealer](https://www.souschef.co.uk/products/anova-sous-vide-vacuum-sealer) - £79.99
