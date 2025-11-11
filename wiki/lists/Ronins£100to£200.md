@@ -17,6 +17,7 @@
 
 # Clothes and Jewlery:
  - [Motus Studio Mid Leather Womens (black, size 6)](https://www.vivobarefoot.com/uk/motus-studio-mid-leather-womens?colour=Limestone)
+ - [Arc'Teryx Delta Crew Neck Pullover Women's (size M, soulsonic/black)](https://arcteryx.com/gb/en/shop/womens/delta-crew-neck-pullover)
 
 
 # Other 
