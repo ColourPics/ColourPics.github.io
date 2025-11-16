@@ -3,6 +3,11 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
+ - Twenty-Five to Life - R.W.W. Greene
+ - Space Brooms! - A.G. Rodriguez
+ - Symbiote - Micheal Nayak
+ - The Nine Billion Names of God - Arthur C. Clarke
+ - The Shipping News - Annie Prouix
  - On Bullshit - Harry G. Frankfurt
  - And Then I Woke Up - Malcolm Devlin
  - Square Eyes - Luke Jones & Anna Mill
