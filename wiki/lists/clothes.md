@@ -32,6 +32,10 @@
 
 ## £75 < x < £100
 
+[James Smith London Umbrella (Black)](https://www.james-smith.co.uk/product/umbrellas/gents-umbrellas/the-london/london-umbrella-with-malacca-cane-crook/) - £95
+
+[Blunt Classic (Any Colour)](https://bluntumbrellas.co.uk/products/2020-blunt-classic?variant=31483158134854) - £85
+
 ## £100 < x < £125
 
 [B1861 Faida Black dress (M)](https://1861.ca/products/fadia-black?variant=42184691580995) - £109
