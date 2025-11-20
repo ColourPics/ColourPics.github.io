@@ -43,3 +43,5 @@
  - [Pilot Vanishing Point](https://www.clothandpaper.com/en-gb/collections/fountain-pens/products/pilot-vanishing-point-fountain-pen) - £160
 
  - [Latdyachtz Drop Cat 38](https://vandemlongboardshop.co.uk/products/landyachtz-drop-cat-38-dune-drop-through-longboard) - £201
+
+ - [Bastard Keyboards Skeletyl kit w/Case & Tents](https://bastardkb.com/product/skeletyl-kit/) - £158
