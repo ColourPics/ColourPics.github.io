@@ -32,8 +32,6 @@
  - [DMR Deathgrip 2 (Gum)](https://dmrbikes.com/products/dmr-grips-deathgrip2-flangeless?variant=54281742713167) - £24
 
 ## £30>x<£60
-
- - [Mammut Pro first aid kit](https://www.mammut.com/uk/en/products/2530-00170-3271/first-aid-kit-pro) - £42
   
  - [Petzl Boreo Helmet (Orange, M/L)](https://bananafingers.co.uk/petzl-boreo) - £53.39
 
