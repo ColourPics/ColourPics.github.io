@@ -9,6 +9,7 @@ Marigold:
  - [Cocktails & Tiki](cocktails.md)
  - [Outdoor](hiking.md)
  - [Books](books.md)
+ - [Makeup](makeup.md)
  - [Misc](misc.md)
 
 Robin:
