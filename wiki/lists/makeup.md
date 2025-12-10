@@ -1,7 +1,5 @@
 ## x<£20
 
- - [My Cabbages! Sponge](https://www.lethalcosmetics.com/product/my-cabbages-makeup-sponge/) - £6
-
  - [Inkey List Vitamin C](https://uk.theinkeylist.com/products/vitamin-c-serum) - £12
 
  - [Inkey List Ectoin](https://uk.theinkeylist.com/products/ectoin-hydro-barrier-serum) - £15
@@ -31,6 +29,14 @@
 
  - [Juliette has a Gun Lust for Sun](https://www.spacenk.com/uk/fragrance/personal-fragrance/fragrance/lust-for-sun-eau-de-parfum-MUK200040402.html?dwvar_MUK200040402_size=UK200040402&quantity=1) - £130
 
+ - [Mari Candida Gentile Lady Day](https://www.mariacandidagentile.com/en/collection/parfum-en/lady-day/) - £160
+
+ - [Jovoy Jardins de Misfah](https://www.jovoyparis.com/en/gourmand/3779-jardins-de-misfah.html) - £139
+
  - [Mugler Alien Au de Parfum](https://www.mugler.co.uk/fragrance/women/alien/alien-eau-de-parfum/M010401002.html) - £127
+
+ - [Aesop Rozu](https://www.cultbeauty.co.uk/p/aesop-rozu-eau-de-parfum-50ml/16090357/) - £145
+
+ - [Arquiste Sydney Rock Pool](https://fiole.co.uk/products/sydney-rock-pool) - £195
 
  - [Mulger Alien Goddess Au de Parfum](https://www.mugler.co.uk/fragrance/women/alien-goddess/alien-goddess-eau-de-parfum/M020604230.html?dwvar_M020604230_size=90ml%20Refillable) - £127
