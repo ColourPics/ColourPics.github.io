@@ -4,8 +4,6 @@
 
  - [Durston stickers](https://durstongear.com/products/sticker-pack) - £5
 
- - [Lightload pack towels (3 x mini)](https://wildskygear.co.uk/lightload-pack-towels-1231-p.asp) - £19
-
  - [Hero Clip](https://www.foraging.co.uk/product/heroclip/) - £17.95
 
  - [Westin Small Tackle box](https://www.fishingtackleandbait.co.uk/en/Westin-W3-Terminal-Tackle-Box/m-56270.aspx) - £4.99
@@ -22,8 +20,6 @@
 
  - [DMM NutBuster](https://bananafingers.co.uk/dmm-nutbuster) - £12.30
 
- - [Nylofume pack liner](https://outdoorgearessentials.co.uk/products/nyloflume-pack-liners-just-25-9g-each-coming-in-end-of-feb) - £3.95
-
 
 ## £20>x<£30
 
@@ -32,8 +28,6 @@
  - [DMR Deathgrip 2 (Gum)](https://dmrbikes.com/products/dmr-grips-deathgrip2-flangeless?variant=54281742713167) - £24
 
 ## £30>x<£60
-  
- - [Petzl Boreo Helmet (Orange, M/L)](https://bananafingers.co.uk/petzl-boreo) - £53.39
 
  - [Sawyer Mini](https://ultralightoutdoorgear.co.uk/mini-filter/) - £39.99
 
@@ -57,8 +51,6 @@
 
 ## x>£100
 
- - [Durston X-Mid 2 Solid](https://durstongear.com/products/x-mid-2-solid) - £242
-
  - [Mamut Aenergy](https://www.mammut.com/uk/en/products/2560-00172-0246/aenergy-st-20-25)- £135
 
  - [Hestra 5 Finger Leather (Blue/Yellow, Size **CHECK**)](https://www.hestragloves.uk/army-leather-coach-czone-5-finger-navy-royal-blue) - £140
@@ -66,8 +58,6 @@
  - [La Sportiva TX4 Evo Mid GTX (9/44)](https://www.alpinetrek.co.uk/la-sportiva-tx4-evo-mid-gtx-approach-shoes/) - £168
 
  - [Julbo Vermont Spectron](https://ultralightoutdoorgear.co.uk/vermont-spectron-3-sunglasses/) - £139.99
-
- - [Helinox Chair Zero](https://ultralightoutdoorgear.co.uk/chair-zero/) - £129.99
 
  - [Petzl Volta Guide (30m)](https://bananafingers.co.uk/petzl-volta-guide-9mm) - £102.67
 
