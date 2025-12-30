@@ -34,10 +34,6 @@
 
  - [Wingspan](https://europe.stonemaiergames.com/products/wingspan) - £65
 
- - [SETI](https://www.board-game.co.uk/product/seti-search-for-extraterrestrial-intelligence/) - £54.49
-
- - [Sleeping Gods](https://www.board-game.co.uk/product/sleeping-gods/) - £78.65
-
  - [Everdell](https://www.board-game.co.uk/product/everdell/) - £53.99
 
  - [Dead cells](https://www.board-game.co.uk/product/dead-cells/) - £67.28
