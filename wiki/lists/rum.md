@@ -87,6 +87,8 @@ This list is just for my own reference, if I've sent you this by accident please
 
 ## Black Blended Overproof
  - Plantation O.F.T.D
+ - Bundaberg Overproof
+ - Goslings 151
 
 ## Cane AOC Rhum Agricole Blanc
  - Clément Canne Bleue
