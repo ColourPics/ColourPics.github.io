@@ -3,6 +3,24 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
+ - All Tomorrows - Nemo Remjet
+ - Widow's Point - Richard Chizmar
+ - A year in Provence - Peter Mayle
+ - Tusedays with Morrie - Mitch Albom
+ - Truth of the Devine - Lindsay Ellis
+ - Clear - Carys Davies
+ - Sula - Toni Morrison
+ - Area X - Jeff Vandermeer
+ - Stasi State of Socialist Paradise? - Bruni de La Motte
+ - Driving the Soviets up the Wall - Hope M. Harrison
+ - A Trade of Blood - Robert Jackson Bennett (Pub 2026)
+ - A Drop of Corruption - Robert Jackson Bennet
+ - The Emperor of Gladness - Ocean Vuong
+ - Burning Down the Haus - Tim Mohr
+ - The Wager - David Grann
+ - Violent Faculties - Charline Elsby
+ - Made a Monster - Rob Nelson
+ - A Short Stay in Hell - Steven L Peck
  - Twenty-Five to Life - R.W.W. Greene
  - Space Brooms! - A.G. Rodriguez
  - Symbiote - Micheal Nayak
@@ -22,22 +40,18 @@ List format is [Title] - [Author]
  - The South - Tash Aw
  - Africa is not a Country - Dipo Faloyin
  - The Immortal Life of Henrietta Lacks - Rebecca Skloot
- - Girl, Interrupted - Susanna Kaysen
  - Psycho - Robert Bloch
  - Homegoing - Yaa Gyasi
  - Sandwich - Catherine Newman
  - Giovanni's Room - James Baldwin
  - The Fire Next Time - James Baldwin
  - I Who Have Never Known Men - Jacqueline Harpman
- - The Nickel Boys - Colson Whitehead
  - Ducks - Kate Beaton
  - The Tiger - John Vaillant
- - The Lonely Londoners - Sam Selvon
  - Forgive Me, Leonard Peacock - Matthew Quick
  - There There - Tommy Orange
- - The Exorcist - William Peter Blatty
  - The Haunting of Hill House - Shirley Jackson
- - The Lst House on Needless Street - Catriana Ward
+ - The Last House on Needless Street - Catriana Ward
  - Vita Nostra - Marina and Sergey Dyachenko
  - The Magus - John Fowles
  - Hunger - Choi Jin-Young
@@ -47,7 +61,6 @@ List format is [Title] - [Author]
  - American Prometheus - Kai Bird, Martin J. Sherwin
  - The Years of Lyndon Johnson - Robert Caro
  - The Power Broker - Robert Caro
- - The Sovereign - C.L. Clark
  - What Stalks the Deep - T. Kingfisher
  - Of Monsters and Mainframes - Barbara Truelove
  - If We Were Villains - M.L. Rio
@@ -64,7 +77,6 @@ List format is [Title] - [Author]
  - Who Fears Death - Nnedi Okorafor
  - XX - Rian Hughes
  - The Castle of Crossed Destinies - Italo Calvino
- - If on a Winters Night a Traveller - Italo Calvino
  - Pale Fire - Vladimir Nabokov
  - The 2020 Comission Report on the North Korean Nuclear Attacks Against the United States - Jeffrey Lewis
  - Annihilation - Jeff Vandermeer
