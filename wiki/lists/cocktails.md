@@ -2,8 +2,6 @@ Refer to [Rum List](/rum.md) for more extensive list for tiki drinks.
 
 ## x<£20
 
- - [Bokers Bitters](https://www.thewhiskyexchange.com/p/71745/dr-adam-elmegirabs-bokers-bitters) - £8.75
-
  - [Luxardo Maraschino Cherries](https://www.lakeland.co.uk/61272/luxardo-maraschino-cherries-400g) - £7.99
 
  - [Peychaud's Bitters](https://www.masterofmalt.com/bitters/sazerac/peychauds-bitters/) - £8.99
@@ -12,16 +10,12 @@ Refer to [Rum List](/rum.md) for more extensive list for tiki drinks.
 
  - [Bitter Truth Creole Bitters](https://www.thewhiskyexchange.com/p/11887/bitter-truth-creole-bitters) - £16.75
 
- - [Lewis bag](https://www.urbanbar.com/products/lewis-bag-canvas) - £6.50
-
  - [Cocktail Picks](https://www.spiritlablondon.com/product/cocktail-picks-10-pc-silver/) - £7
 
  - [Bitter Truth Falernum](https://www.drinksupermarket.com/the-bitter-truth-golden-falernum-50cl-18-abv) - £19.99
 
 
 ## £20>x<£30
-
- - [Tiki Cup](https://www.etsy.com/uk/listing/1138548487/handmade-green-tiki-mezcal-cup-handmade) - £25
 
  - [Libbey Tiki mug](https://www.etsy.com/uk/listing/1743244078/vintage-libby-green-bamboo-tiki-tumbler) - £27.79
 
