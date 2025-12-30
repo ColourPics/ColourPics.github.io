@@ -10,10 +10,6 @@
 
 [B1861 Madoka Trousers (M)](https://1861.ca/collections/boutique-1861/products/madoka?variant=41426235392067) - £49
 
-[Aventurnite Ear Weights](https://www.etsy.com/uk/listing/4396800708/aventurine-dangle-ear-weights-brass) - £42
-
-[Opal Ear Weights](https://www.etsy.com/uk/listing/4349204003/white-opal-dangle-ear-weights-6g) - £38.81
-
 ## £50 < x < £75
 
 [Miss Patina Somerville Top (M/L)](https://misspatina.com/collections/best-sellers/products/somerville-top-cream?variant=46420612120898) - £59
