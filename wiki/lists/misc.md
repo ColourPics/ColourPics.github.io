@@ -45,3 +45,5 @@
  - [Latdyachtz Drop Cat 38](https://vandemlongboardshop.co.uk/products/landyachtz-drop-cat-38-dune-drop-through-longboard) - £201
 
  - [Bastard Keyboards Skeletyl kit w/Case & Tents](https://bastardkb.com/product/skeletyl-kit/) - £158
+
+ - [Wiim Amp](https://premiumsound.co.uk/product/hifi-separates/integrated-amplifiers/wiim-amp/) - £319
