@@ -3,6 +3,29 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
+ - Salt Fat Acid Heat - Samin Nosrat
+ - Noma Guide to Fermentation - David Zilber & Rene Redzepi
+ - Good Things - Samin Nosrat
+ - Dessert Person - Claire Saffitz
+ - Field Notes for Food Adventure - Brad Leone
+ - Tasting History - Max Miller
+ - Joy of Cooking - Irma S. Rombauer
+ - TM 10-412 - US Army
+ - One Bake Two Ways - Ruby Boghai
+ - Savory Baking - Erin McDowell
+ - Falastin - Sami Tamimi
+ - The Wok - J. Kenji Lopez-Alt
+ - Flour Water Salt Yeast - Ken Forkish
+ - The Art of Mexican Cooking - Diana Kennedy
+ - The Taste of Country Cooking - Edna Lewis
+ - Food on the Page - Megan J. Elias
+ - Start Here - Sola El-Waylly
+ - Baking Yesteryear - B. Dylan Hollis
+ - Baking Across America - B. Dylan Hollis
+ - Toast - Nigel Slater
+ - The River Cottage Meat Book - Hugh Fearnley-Wittingstall
+ - Kitchen Confidential - Anthony Bourdain
+ - The Chef's Library - Jenny Linford
  - All Tomorrows - Nemo Remjet
  - Nelson - Carola Oman
  - Above us the Waves - C.E.T Warren
