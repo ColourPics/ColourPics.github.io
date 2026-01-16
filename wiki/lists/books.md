@@ -4,8 +4,32 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 List format is [Title] - [Author]
 
  - All Tomorrows - Nemo Remjet
+ - Nelson - Carola Oman
+ - Above us the Waves - C.E.T Warren
+ - Seapower - Geoffrey Till
+ - The Royal Navy Cince 1815 - Eric Grove
+ - Killing the Bismarck - Iain Ballantyne
+ - One Hundred Days - Sandy Woodward
+ - Four Weeks in May - David Hart Dyke
+ - Battle for the Falklands - Max Hastings
+ - Sackleton's Way - Margot Morrell
+ - The Plimsoll Sensation - Nicolette Jones
+ - Engineers of Victory - Paul Kennedy
+ - Rebuilding the Royal Navy - D.K. Brown
+ - Battle of the Beams - Tom Whipple
+ - Radio Systems Engineering - Steven W. Ellingson
+ - Liberty - Peter Elphick
+ - The Ohio and Malta - Michael Pearson
+ - Typhoon - Raymond Calhoun
+ - Too Far on a Whim - Tyler A. Pitrof
+ - Jet Man - Duncan Campbell-Smith
+ - Wounded - Emily Mayhew
+ - Cinderella Boys - Leo McKinstry
+ - The Price of Victory - N.A.M Rodger
+ - Why Nations Fail - James A. Robinson & Daron Acemoglu
+ - A Tree Grows In Brooklyn - Betty Smith
+ - Dead Silence - S.A. Barnes
  - Widow's Point - Richard Chizmar
- - A year in Provence - Peter Mayle
  - Tusedays with Morrie - Mitch Albom
  - Truth of the Devine - Lindsay Ellis
  - Clear - Carys Davies
@@ -17,7 +41,6 @@ List format is [Title] - [Author]
  - A Drop of Corruption - Robert Jackson Bennet
  - The Emperor of Gladness - Ocean Vuong
  - Burning Down the Haus - Tim Mohr
- - The Wager - David Grann
  - Violent Faculties - Charline Elsby
  - Made a Monster - Rob Nelson
  - A Short Stay in Hell - Steven L Peck
