@@ -93,3 +93,5 @@ Refer to [Rum List](/rum.md) for more extensive list for tiki drinks.
  - [Eekum Bookum Jungle Bird](https://www.eekumbookum.com/product/jungle-bird-blue) - £130
 
  - [Octomore 15.1](https://uk.bruichladdich.com/products/octomore-15-1) - £140
+
+ - [The Aviary Cocktail Book](https://www.theaviarybooks.com/shop/p/the-aviary-cocktail-book-reserve-edition) - approx £102 (_Will_ incur import fees - do not order)
