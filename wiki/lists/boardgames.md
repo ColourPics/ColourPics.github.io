@@ -2,6 +2,8 @@
 
  - [Terraforming Mars](https://www.board-game.co.uk/product/terraforming-mars/) - £48.95
 
+ - [Eat the Reich](https://rowanrookanddecard.com/product/eat-the-reich/?v=7885444af42e) - £25
+
  - [Tzolk'in](https://www.board-game.co.uk/product/tzolkin-mayan-calendar/) - £39.65
 
  - [Kingdomino](https://www.board-game.co.uk/product/kingdomino/) -£14.35
