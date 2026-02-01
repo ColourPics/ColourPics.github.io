@@ -4,6 +4,14 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 List format is [Title] - [Author]
 
  - Salt Fat Acid Heat - Samin Nosrat
+ - Tender is the Flesh - Agustina Bazterrica
+ - Ham on Rye - Charles Bukowski
+ - Half His Age - Jennette McCurdy
+ - Pagans - James Alistair Henry
+ - Capturing the German Eye - Cora Sol Goldstein
+ - The End - Ian Kershaw
+ - Aftermath - Harald Jähner
+ - Divided Memory - Jeffrey Herf
  - Noma Guide to Fermentation - David Zilber & Rene Redzepi
  - Good Things - Samin Nosrat
  - Dessert Person - Claire Saffitz
