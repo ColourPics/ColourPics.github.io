@@ -10,6 +10,7 @@ Marigold:
  - [Outdoor](hiking.md)
  - [Books](books.md)
  - [Makeup](makeup.md)
+ - [Records](records.md)
  - [Misc](misc.md)
 
 Robin:
