@@ -24,6 +24,7 @@ Specific albums will be listed in bold where relevant.
  - Jane's Addiction
  - Johnny Cash
  - Justice
+ - Jimmy Eat World - **Bleed American**
  - Kero Kero Bonito
  - Kyuss
  - Less Than Jake
