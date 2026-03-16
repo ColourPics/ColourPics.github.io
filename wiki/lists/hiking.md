@@ -52,6 +52,7 @@
 ## x>£100
 
  - [Mamut Aenergy](https://www.mammut.com/uk/en/products/2560-00172-0246/aenergy-st-20-25)- £135
+ - [Vaistoa Uoma 2](https://vaistoa.com/collections/barefoot-trekking-hiking-shoes/products/uoma-barefoot-trekking-boots?variant=57304780669253) - £113 (Any colour other than black)
 
  - [Hestra 5 Finger Leather (Blue/Yellow, Size **CHECK**)](https://www.hestragloves.uk/army-leather-coach-czone-5-finger-navy-royal-blue) - £140
 
