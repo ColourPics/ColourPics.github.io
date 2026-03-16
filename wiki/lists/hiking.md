@@ -66,5 +66,3 @@
  - [Durston X-Mid Pro 2+](https://durstongear.com/products/x-mid-pro-plus-tent-ultralight-thruhiking?srsltid=AfmBOoqmJReckUHmm882BBYjzMMKxF67ihsu82VxHE3rJWQAIr9iJI-1) - £588
 
  - [Hilleberg Nammatj 3](https://hilleberg.com/eng/products/tent/Nammatj) - £850
-
- - [Enlightened Equipment Revelation](https://ultralightoutdoorgear.co.uk/revelation-950fp-20f-down-quilt-with-draft-collar/) - £489.99
