@@ -19,6 +19,7 @@
  - [DMM Phantom Carabiner *12](https://bananafingers.co.uk/dmm-phantom-carabiner) - £8.78
 
  - [DMM NutBuster](https://bananafingers.co.uk/dmm-nutbuster) - £12.30
+ - [Large packing cells](https://wildskygear.co.uk/recycled-polyester-packing-cells--4-sizes--7g-2352-p.asp) - £12.49
 
 
 ## £20>x<£30
@@ -32,6 +33,7 @@
  - [Sawyer Mini](https://ultralightoutdoorgear.co.uk/mini-filter/) - £39.99
 
  - [Montane Dart Lite (Small)](https://ultralightoutdoorgear.co.uk/dart-lite-long-sleeve-t-shirt/) - £42.99
+ - [DCF Bear Sack](https://wildskygear.co.uk/dcf-30-bear-bag--14l--39g-1352-p.asp) - £43.99
 
 ## £60>x<£100
 
