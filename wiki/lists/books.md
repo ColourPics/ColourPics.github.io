@@ -3,6 +3,28 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
+ - Some Desperate Glory - Emily Tesh
+ - Buried Deep - Naomi Novik
+ - Temerate - Naiomi Novik
+ - Spinning Silver - Naiomi Novik
+ - Uprooted - Naiomi Novik
+ - The Well of Lonliness - Radclyffe Hall
+ - The Golden Compas Omnibus - Phillip  Pullman
+ - Silent Spring - Rachel Carson
+ - Train Dreams - Denis Johnson
+ - Orbital - Samantha Harvey
+ - Foster - Claire Keegan
+ - The Invention of Morel - Adolfo Bioy Casares
+ - Termush - Sven Holm
+ - All My Friends are Superheroes - Andrew Kaufman
+ - When We Cease to Understand the World - Benjamin Labatut
+ - Soup De Grace - Sofia Ajram
+ - Die, My Love - Ariana Harwicz
+ - The Lathe of Heaven - Ursula K. Le Guin
+ - It Lasts Forever and then Its Over - Anne de Marcken
+ - I am thinking of ending things - Ian Reid
+ - They Came to Slay - Thom James Carter
+ - 
  - Salt Fat Acid Heat - Samin Nosrat
  - Tender is the Flesh - Agustina Bazterrica
  - Ham on Rye - Charles Bukowski
