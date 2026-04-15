@@ -18,42 +18,33 @@ List format is [Title] - [Author]
  - Termush - Sven Holm
  - All My Friends are Superheroes - Andrew Kaufman
  - When We Cease to Understand the World - Benjamin Labatut
- - Soup De Grace - Sofia Ajram
+ - Coup De Grace - Sofia Ajram
  - Die, My Love - Ariana Harwicz
  - The Lathe of Heaven - Ursula K. Le Guin
  - It Lasts Forever and then Its Over - Anne de Marcken
  - I am thinking of ending things - Ian Reid
  - They Came to Slay - Thom James Carter
- - 
- - Salt Fat Acid Heat - Samin Nosrat
+ - Natural Beauty - Ling Ling Huang
+ - Discontent - Beatriz Serrano
+ - Mister Magic - Kiersten White
+ - The Zookeeper's War - J.W. Mohnhaput
+ - A Half-Built Garden - Ruthanna Emrys
+ - The Terraformers - Annalee Newitz
+ - Infomancy - Malka Older
+ - Stealing Worlds - Karl Schroeder
+ - Gamechanger - L.X. Beckett
+ - Woman on the Edge of Time - Marge Piercy
+ - Pacific Edge - Kim Stanley Robinson
+ - The Road To Wigan Pier - Goerge Orwell
+ - Stone Butch Blues - Leslie Feinberg (Notoriously hard to find, if you see a physical copy please let me know)
+ - Julia - Sandra Newman
+ - We Call Them Witches - India-Rose Bower
+ - The Dangers of Smoking In Bed - Mariana Enriquez
  - Tender is the Flesh - Agustina Bazterrica
- - Ham on Rye - Charles Bukowski
- - Half His Age - Jennette McCurdy
- - Pagans - James Alistair Henry
  - Capturing the German Eye - Cora Sol Goldstein
  - The End - Ian Kershaw
  - Aftermath - Harald Jähner
  - Divided Memory - Jeffrey Herf
- - Noma Guide to Fermentation - David Zilber & Rene Redzepi
- - Good Things - Samin Nosrat
- - Dessert Person - Claire Saffitz
- - Field Notes for Food Adventure - Brad Leone
- - Tasting History - Max Miller
- - Joy of Cooking - Irma S. Rombauer
- - TM 10-412 - US Army
- - One Bake Two Ways - Ruby Boghai
- - Savory Baking - Erin McDowell
- - Falastin - Sami Tamimi
- - The Wok - J. Kenji Lopez-Alt
- - Flour Water Salt Yeast - Ken Forkish
- - The Art of Mexican Cooking - Diana Kennedy
- - The Taste of Country Cooking - Edna Lewis
- - Food on the Page - Megan J. Elias
- - Start Here - Sola El-Waylly
- - Baking Yesteryear - B. Dylan Hollis
- - Baking Across America - B. Dylan Hollis
- - Toast - Nigel Slater
- - The River Cottage Meat Book - Hugh Fearnley-Wittingstall
  - Kitchen Confidential - Anthony Bourdain
  - The Chef's Library - Jenny Linford
  - All Tomorrows - Nemo Remjet
