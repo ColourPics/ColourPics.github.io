@@ -62,4 +62,25 @@
  - [Hestan ProBond® Luxe Induction Stainless Steel Skillet  (28cm)](https://hestanculinary.co/collections/probond-luxe/products/hestan-probond-luxe-stainless-steel-induction-skillets-22cm-28cm-32cm?variant=55320698814841)
 
  - [Old Shipping Lanes World Map, 1873 by Berghaus (178x112cm, unframed)](https://uniquemaps.co.uk/collections/world-maps/products/old-shipping-lanes-world-map-1873-by-berghaus-giant-atlas-chart-sea-transport-railroads-harbours-steamers-303999520?variant=42713854017766) - £460
+
+ - Noma Guide to Fermentation - David Zilber & Rene Redzepi
+ - Good Things - Samin Nosrat
+ - Dessert Person - Claire Saffitz
+ - Field Notes for Food Adventure - Brad Leone
+ - Tasting History - Max Miller
+ - Joy of Cooking - Irma S. Rombauer
+ - TM 10-412 - US Army
+ - One Bake Two Ways - Ruby Boghai
+ - Savory Baking - Erin McDowell
+ - Falastin - Sami Tamimi
+ - The Wok - J. Kenji Lopez-Alt
+ - Flour Water Salt Yeast - Ken Forkish
+ - The Art of Mexican Cooking - Diana Kennedy
+ - The Taste of Country Cooking - Edna Lewis
+ - Food on the Page - Megan J. Elias
+ - Start Here - Sola El-Waylly
+ - Baking Yesteryear - B. Dylan Hollis
+ - Baking Across America - B. Dylan Hollis
+ - Toast - Nigel Slater
+ - The River Cottage Meat Book - Hugh Fearnley-Wittingstall
  
