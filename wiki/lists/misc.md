@@ -32,6 +32,8 @@
 
  - [Platinum Curidas Crystal Medium](https://www.clothandpaper.com/en-gb/collections/fountain-pens/products/platinum-curidas-fountain-pen-prism-crystal-medium) - £73
 
+ - [Wonderboom 4 Speaker](https://www.johnlewis.com/ultimate-ears-wonderboom-4-bluetooth-waterproof-portable-speaker-active-black/joyous-brights/p112235926) - £89.99
+
 ## x>£100
 
  - [Herman Miller Keyn office chair](https://www.ebay.co.uk/sch/i.html?_nkw=herman+miller+keyn&_sacat=0&_from=R40&_trksid=p2334524.m570.l1313&LH_TitleDesc=0&_odkw=herman+miller+cosm&_osacat=0) - Used price approx £150
@@ -47,3 +49,5 @@
  - [Bastard Keyboards Skeletyl kit w/Case & Tents](https://bastardkb.com/product/skeletyl-kit/) - £158
 
  - [Wiim Amp](https://premiumsound.co.uk/product/hifi-separates/integrated-amplifiers/wiim-amp/) - £319
+
+ - [Palm Riff (M/L)](https://aswatersports.co.uk/products/palm-riff-pfd?variant=47931052785999) - £125
