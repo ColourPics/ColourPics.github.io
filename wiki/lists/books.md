@@ -3,16 +3,17 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
+ - Storm Front - Jim Butcher
+ - The shadow of the Torturer - Gene Wolfe
+ - Yesteryear - Car Claire Burke
  - Some Desperate Glory - Emily Tesh
  - Buried Deep - Naomi Novik
  - Temerate - Naiomi Novik
- - Spinning Silver - Naiomi Novik
  - Uprooted - Naiomi Novik
  - The Well of Lonliness - Radclyffe Hall
  - The Golden Compas Omnibus - Phillip  Pullman
  - Silent Spring - Rachel Carson
  - Train Dreams - Denis Johnson
- - Orbital - Samantha Harvey
  - Foster - Claire Keegan
  - The Invention of Morel - Adolfo Bioy Casares
  - Termush - Sven Holm
@@ -29,7 +30,6 @@ List format is [Title] - [Author]
  - Mister Magic - Kiersten White
  - The Zookeeper's War - J.W. Mohnhaput
  - A Half-Built Garden - Ruthanna Emrys
- - The Terraformers - Annalee Newitz
  - Infomancy - Malka Older
  - Stealing Worlds - Karl Schroeder
  - Gamechanger - L.X. Beckett
@@ -79,15 +79,11 @@ List format is [Title] - [Author]
  - Clear - Carys Davies
  - Sula - Toni Morrison
  - Area X - Jeff Vandermeer
- - Stasi State of Socialist Paradise? - Bruni de La Motte
+ - Stasi State or Socialist Paradise? - Bruni de La Motte
  - Driving the Soviets up the Wall - Hope M. Harrison
  - A Trade of Blood - Robert Jackson Bennett (Pub 2026)
- - A Drop of Corruption - Robert Jackson Bennet
- - The Emperor of Gladness - Ocean Vuong
- - Burning Down the Haus - Tim Mohr
  - Violent Faculties - Charline Elsby
  - Made a Monster - Rob Nelson
- - A Short Stay in Hell - Steven L Peck
  - Twenty-Five to Life - R.W.W. Greene
  - Space Brooms! - A.G. Rodriguez
  - Symbiote - Micheal Nayak
@@ -100,34 +96,24 @@ List format is [Title] - [Author]
  - Children of the New World - Alexander Weinstein
  - Replaceable You - Mary Roach
  - When the Cranes Fly South - Lisa Ridzen & Alice Menzies
- - Whale Fall - Elizabeth O'Connor
  - Endling - Maria Reva
  - Love Forms - Claire Adam
  - Autition - Katie Kitamura
  - The South - Tash Aw
  - Africa is not a Country - Dipo Faloyin
- - The Immortal Life of Henrietta Lacks - Rebecca Skloot
  - Psycho - Robert Bloch
  - Homegoing - Yaa Gyasi
- - Sandwich - Catherine Newman
  - Giovanni's Room - James Baldwin
  - The Fire Next Time - James Baldwin
  - I Who Have Never Known Men - Jacqueline Harpman
  - Ducks - Kate Beaton
- - The Tiger - John Vaillant
- - Forgive Me, Leonard Peacock - Matthew Quick
  - There There - Tommy Orange
  - The Haunting of Hill House - Shirley Jackson
  - The Last House on Needless Street - Catriana Ward
  - Vita Nostra - Marina and Sergey Dyachenko
  - The Magus - John Fowles
- - Hunger - Choi Jin-Young
  - Project Hail Mary - Andy Weir
- - Rosewater - Tade Thompson
- - Newjack - Ted Conover
- - American Prometheus - Kai Bird, Martin J. Sherwin
  - The Years of Lyndon Johnson - Robert Caro
- - The Power Broker - Robert Caro
  - What Stalks the Deep - T. Kingfisher
  - Of Monsters and Mainframes - Barbara Truelove
  - If We Were Villains - M.L. Rio
@@ -145,9 +131,7 @@ List format is [Title] - [Author]
  - XX - Rian Hughes
  - The Castle of Crossed Destinies - Italo Calvino
  - Pale Fire - Vladimir Nabokov
- - The 2020 Comission Report on the North Korean Nuclear Attacks Against the United States - Jeffrey Lewis
  - Annihilation - Jeff Vandermeer
- - Kraken - China Mieville
  - A Woman of the Sword - Anna Smith Spark
  - This Weightless World - Adam Soto
  - Across the Green Grass Fields - Seannan McGuire
@@ -182,7 +166,5 @@ List format is [Title] - [Author]
  - Before the Coffee Gets Cold - Toshikazu Kawaguchi
  - Upright Women Wanted - Sarah Gailey
  - Reincarnation Blues - Michael Poore
- - All Systems Red - Martha Wells
- - Dark Matter - Blake Crouch
  - After Atlas - Emma Newman
 
