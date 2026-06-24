@@ -63,6 +63,8 @@
 
  - [Old Shipping Lanes World Map, 1873 by Berghaus (178x112cm, unframed)](https://uniquemaps.co.uk/collections/world-maps/products/old-shipping-lanes-world-map-1873-by-berghaus-giant-atlas-chart-sea-transport-railroads-harbours-steamers-303999520?variant=42713854017766) - £460
 
+## Books
+
  - Noma Guide to Fermentation - David Zilber & Rene Redzepi
  - Good Things - Samin Nosrat
  - Dessert Person - Claire Saffitz
@@ -83,4 +85,5 @@
  - Baking Across America - B. Dylan Hollis
  - Toast - Nigel Slater
  - The River Cottage Meat Book - Hugh Fearnley-Wittingstall
+ - Any Phaidon cookbook
  
