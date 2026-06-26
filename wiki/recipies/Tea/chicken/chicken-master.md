@@ -31,3 +31,5 @@
 [TLC015](TLC015.md) - Chicken and Feta Meatball Soup;
 
 [TLC016](TLC016.md) - Garlic Cajun Chicken;
+
+[TLC018](TLC018.md) - Ginataang Manok;
