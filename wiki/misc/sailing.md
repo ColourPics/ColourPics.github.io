@@ -1,3 +1,4 @@
+# Sailing Notes
 ### Hoisting a Kite
 - Bow and mast get sail bag set on leward rail, pole is attatched to nub and hoisted up so it is parallel with deck and
 alongside jib with working guy attatched to outboard end.
