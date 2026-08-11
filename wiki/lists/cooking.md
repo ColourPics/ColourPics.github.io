@@ -41,7 +41,11 @@
 
  - [Chefs press (13oz size)](https://www.souschef.co.uk/products/the-chefs-press-8oz?variant=39844164173882) - £35
 
- - [Messermeister Maintenance Whetstone, 1000 & 3000 Grit](https://www.souschef.co.uk/products/messermeister-maintenance-whetstone) - £59.99
+ - [Messermeister Maintenance Whetstone, 1000 & 3000 Grit](https://www.souschef.co.uk/products/messermeister-maintenance-whetstone) - £59.99#
+
+ - [Ikea Varptross](https://www.ikea.com/gb/en/p/varptross-floor-lamp-bamboo-20601227/) - £50
+
+ - [Ikea Lauters](https://www.ikea.com/gb/en/p/lauters-floor-lamp-ash-white-40405046/) - £50
 
 ## £60>x<£100
 
@@ -62,6 +66,8 @@
  - [Hestan ProBond® Luxe Induction Stainless Steel Skillet  (28cm)](https://hestanculinary.co/collections/probond-luxe/products/hestan-probond-luxe-stainless-steel-induction-skillets-22cm-28cm-32cm?variant=55320698814841)
 
  - [Old Shipping Lanes World Map, 1873 by Berghaus (178x112cm, unframed)](https://uniquemaps.co.uk/collections/world-maps/products/old-shipping-lanes-world-map-1873-by-berghaus-giant-atlas-chart-sea-transport-railroads-harbours-steamers-303999520?variant=42713854017766) - £460
+
+ - [UniFi Express 7](https://uk.store.ui.com/uk/en/products/ux7) - £171
 
 ## Books
 
