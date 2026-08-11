@@ -5,7 +5,6 @@ Household:
  - [Cooking/Household](cooking.md)
 
 Marigold:
- - [Clothes](clothes.md)
  - [Cocktails & Tiki](cocktails.md)
  - [Outdoor](hiking.md)
  - [Books](books.md)
