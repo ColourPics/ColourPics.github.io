@@ -48,4 +48,3 @@
 
  - [Wiim Amp](https://premiumsound.co.uk/product/hifi-separates/integrated-amplifiers/wiim-amp/) - £319
 
- - [Palm Riff (M/L)](https://aswatersports.co.uk/products/palm-riff-pfd?variant=47931052785999) - £125
