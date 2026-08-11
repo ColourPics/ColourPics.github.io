@@ -3,7 +3,48 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
- - Storm Front - Jim Butcher
+ - Timecode of a Face - Ruth Ozeki
+ - No Country for Eight-Spot Butterflies - Julian Aguon
+ - The Science of Last Things - Ellen Wayland-Smith
+ - Tiny Moons - Nina Mingya Powels
+ - Conversations on Love - Natasha Lunn
+ - These Precious Days - Ann Patchett
+ - The Common Reader - Virginia Woolf
+ - How to Be Alone - Jonathan Franzen
+ - Feel Free - Zadie Smith
+ - A Supposedly Fun thing I'll Never Do Again - David Foster Wallace
+ - The Vivisectors - Missouri Williams
+ - War is a Racket - Smedley D. Butler
+ - Pond - Claire-Louise Bennet
+ - Lithium - Malen Denis
+ - Hill William - Scott McClanahan
+ - Out - Natsuo Kirino
+ - Kalyna the Soothsayer - Elijah Kinch Spector
+ - Code of the Woosters - P.G. Woodhouse
+ - Here - Richard McGuire
+ - Story of your Life - Ted Chiang
+ - Mammoth - Eva Baltasar
+ - The Wax Child - Olga Ravn
+ - Pick a Color - Souvankham Thammavongsa
+ - The Pachinko Parlour - Elisa Shua Dusapin
+ - The Occasional Human Sacrifice - Carl Eliott
+ - Bluejay - Megan Stockton
+ - Along the Path of Torment - Chandler Morrison
+ - Father of Lies - Brian Evenson
+ - Poking Holes - Juan - Valencia
+ - Guillotine - Delilah S. Dawson
+ - Scanlines - Todd Kiesling
+ - Knock Knock, Open Wide - Neil Sharpson
+ - Earthlings - Sayaka Murata
+ - The Troop - Nick Cutter
+ - I Call Upon Thee - Ania Ahlborn
+ - The Devil Aspect - Craig Russel
+ - Dead End Tunnel - Nick Roberts
+ - I Always Find You - John Ajvide Lindqvist
+ - Root Rot - Saskia Nislow
+ - Fingersmith - Sarah Waters
+ - The Hollow Places - T. Kingfisher
+ - The Willows - Algernon Blackwood
  - The shadow of the Torturer - Gene Wolfe
  - Yesteryear - Car Claire Burke
  - Some Desperate Glory - Emily Tesh
