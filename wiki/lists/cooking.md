@@ -22,8 +22,6 @@
 
  - [Splatter Enamel Roasting Pan (26cm)](https://www.souschef.co.uk/products/splatter-fest-enamel-roasting-and-serving-dish-yellow-21cm?variant=39400465727546) - £26.99
 
- - [Cantabrian Anchovies in Butter](https://www.thetinnedfishmarket.com/products/large-cantabrian-anchovies-in-butter-14-fillets?_pos=1&_sid=a498aa882&_ss=r) - £25.95 (Yes, spensive. But literally anything else from this site would be awesome)
-
  -  [Baking tray](https://www.souschef.co.uk/products/usa-pan-large-cookie-sheet) - £22.99
   
 
@@ -50,8 +48,6 @@
 ## £60>x<£100
 
  - [Anova Vacuum Sealer](https://www.souschef.co.uk/products/anova-sous-vide-vacuum-sealer) - £79.99
-
- - [Yakumi Pans #00](https://knivesforchefs.co.uk/collections/yakumi-pans/products/00-small-8pc-long) - £70
 
  - [LSA Wine Culture Champagne Saucer 320ml](https://www.lsa-international.com/drinkware/wine-culture-champagne-saucer) - £100
 
