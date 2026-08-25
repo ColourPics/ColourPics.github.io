@@ -51,9 +51,23 @@
 
  - [LSA Wine Culture Champagne Saucer 320ml](https://www.lsa-international.com/drinkware/wine-culture-champagne-saucer) - £100
 
+ - [Floyd Floor Lamp](https://www.cultfurniture.com/products/montreux-4-6-seat-round-extendable-dining-table-walnut#description) - £89
+
+ - [Panda Mini rice cooker](https://yum-asia.com/uk/product/panda-mini-advanced-fuzzy-logic-ceramic-rice-cooker/?attribute_pa_cooker-colour=sage-green-2) - £94
+
 ## x>£100
 
  - [End grain chopping board](https://www.hardwoodchoppingboards.co.uk/product/oak-end-grain-chopping-board-14/) - £135
+
+ - [LaRedoute Kiniko Lamp](https://www.laredoute.co.uk/ppdp/prod-351209491.aspx) - £109
+
+ - [Gran & Frame Dining Chairs](https://www.grainandframe.com/kitchen-and-dining/dining-chairs/dark-solid-oak-scandinavian-dining-chair-with-oatmeal-linen/) - £129/chair
+
+ - [Cult Montreaux Dining Table](https://www.cultfurniture.com/products/montreux-4-6-seat-round-extendable-dining-table-walnut#description) - £495
+
+ - [Casterly Vento Coffee Table](https://www.castlery.com/uk/products/vento-coffee-table) - £499
+
+ - [Homary Bedside tables (Pair)](https://uk.homary.com/item/1-drawer-led-smart-walnut-nightstand-with-light-set-of-2-51157.html) - £284
 
  - [Kitchenaid](https://www.ebay.co.uk/sch/i.html?_nkw=kitchenaid+pro&_sacat=0&_from=R40&rt=nc&LH_ItemCondition=3000) - Used price hovers around £270 (Please god don't buy a new one)
 
