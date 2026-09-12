@@ -37,7 +37,6 @@
  - Gamer's Grass Green Grass Tuft Starter Box
  - Right angle tweezers
  - 2mm Summer Grass flock
- - #1 #0 and #2/0 Brushes
  - Tree Bush Foam Flock
 
 ## Model kits
