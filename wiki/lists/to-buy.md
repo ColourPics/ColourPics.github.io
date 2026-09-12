@@ -10,6 +10,7 @@ Marigold:
  - [Books](books.md)
  - [Makeup](makeup.md)
  - [Records](records.md)
+ - [Models](warhammer.md)
  - [Misc](misc.md)
 
 Robin:
