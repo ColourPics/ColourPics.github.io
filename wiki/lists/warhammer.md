@@ -25,6 +25,8 @@
  - Verdigris
  - Alien Purple
  - USN Light Ghost Grey
+ - Florescent Orange
+ - Game Ink Yellow
 
 ### Ammo
  - Rust Reactor type 2 
