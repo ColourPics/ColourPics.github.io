@@ -40,9 +40,8 @@
  - Tree Bush Foam Flock
 
 ## Model kits
- - 500 Worlds Necrons (First Priority)
  - Trazyn The Infinite (Wait for new model if possible)
- - Heavy Lokhust Destroyer x2
+ - Heavy Lokhust Destroyer x4
  - Immortals x2
  - Ophydian Destroyers
  - Monolith
