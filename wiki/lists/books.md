@@ -3,6 +3,8 @@ I prefer [Awesome Books](https://www.awesomebooks.com/), and I can usually find 
 
 List format is [Title] - [Author]
 
+ - The Blue Book of Nebo = Manon Steffan Ros
+ - The Butcher of Nazereth - David Scott Hay 
  - Timecode of a Face - Ruth Ozeki
  - The Science of Last Things - Ellen Wayland-Smith
  - Tiny Moons - Nina Mingya Powels
