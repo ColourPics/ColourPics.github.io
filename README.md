@@ -8,4 +8,6 @@ Mostly this is just here for better organisation and sharing.
 
 [To buy lists](/wiki/lists/to-buy.md)
 
+[To do lists](/wiki/to-do/to-do.md)
+
 Built using GitWiki version 1.0.9
